@@ -28,5 +28,5 @@ tag: gotobun
 
 ### 個別感想
 
-1. [第1巻 1月ー4月](/2025/01/27/gotobun_novel1/)
-2. [第2巻 5月ー8月](/2025/05/18/gotobun_novel2/)
+1. [第1巻 1月ー4月](/sites/2025/01/27/gotobun_novel1/)
+2. [第2巻 5月ー8月](/sites/2025/05/18/gotobun_novel2/)
