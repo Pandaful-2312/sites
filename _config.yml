@@ -1,0 +1,29 @@
+title: Pandaful
+
+# The `>` after `description:` means to ignore line-breaks until next key.
+# If you want to omit the line-break after the end of text, use `>-` instead.
+description: >
+
+theme: minima
+
+header_pages:
+  - favorites/favorites.md
+  - records/records.md
+
+plugins:
+    - jekyll-sitemap
+    - jekyll-feed
+    - jekyll-remote-theme
+    - jekyll-seo-tag
+
+minima:
+  skin: auto
+
+# URL構造に年や月を含める設定
+permalink: /:year/:month/:day/:title/
+
+# ページネーション設定（必要に応じて）
+paginate: 5
+paginate_path: "/page:num/"
+
+fav_list: ["gotobun", "saekano", "sao", "spyroom"]

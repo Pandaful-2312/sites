@@ -1,0 +1,26 @@
+{% if page.tag %}
+    {% assign sortedTags = page.tag | split:',' | sort %}
+    <hr>
+    {% for tag in sortedTags %}
+        {% assign flag = 0 %}
+        <ul>
+        {% assign tagged_pages = site.pages | where_exp: "page", "page.tag contains tag" %}
+        {% assign sorted_pages = tagged_pages | sort: "url" %}
+        {% for p in sorted_pages %}
+            {% if flag == 0 %}
+                <h2><a href="{{p.url | relative_url }}">{{p.title | escape}}</a></h2>
+                {% assign flag = 1 %}
+            {% else %}
+                <li><a href="{{p.url | relative_url }}">{{p.title | escape }}</a></li>
+            {% endif %}
+        {% endfor %}
+
+        {% assign tagged_posts = site.posts | where_exp: "post", "post.tag contains tag" %}
+        {% assign sorted_posts = tagged_posts | sort: "url" %}
+        {% for p in sorted_posts %}
+            <li><a href="{{p.url | relative_url }}">{{p.title | escape }} - {{p.date | date: "%Y/%m/%e"}}</a></li>
+        {% endfor %}
+        </ul>
+        <hr>
+    {% endfor %}
+{% endif %}
