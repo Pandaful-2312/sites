@@ -3,6 +3,7 @@ layout: page
 title: Pandaful 感想を述べるサイト
 permalink: /
 ---
+※作成中
 
 タイトルの通り、ただの一般人のオタク男が感想を書き連ねるためのサイト
 
