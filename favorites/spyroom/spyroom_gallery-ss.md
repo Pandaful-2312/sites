@@ -16,7 +16,6 @@ tag: spyroom
 - [8巻 草原 サラ](#8巻-草原-サラ)
 - [9巻 我楽多 アネット](#9巻-我楽多-アネット)
 - [10巻 高天原 サラ](#10巻-高天原-サラ)
-- [ニケとの邂逅](#ニケとの邂逅)
 - [その他](#その他)
 
 ## 概要
@@ -258,9 +257,16 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「カッコいいエルナちゃんですね！」<br>ジビア　「おぉー。こんな顔もできるんだ」<br>サラ　　「いかなる時でも怯まないアネット先輩も凄みがありますね」<br>エルナ　「のぉほほー！！」<br>アネット「んふふふふーん！！」<br>モニカ　「どんな威張り方？」<br>ティア… <a href="https://t.co/VSed03sQCn">https://t.co/VSed03sQCn</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1919006144791785483?ref_src=twsrc%5Etfw">May 4, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-## ニケとの邂逅
+### ニケとの邂逅
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「ぴいいいいいいいいいいっなの！！」<br>リリィ　「逃げましたね」<br>ティア　「エルナにとって存在自体がトラウマなのね、ニケさん」<br>サラ　　「敵のトップである『創世軍』の長――『ニケ』に見つかった瞬間っすね」<br>モニカ　「早々に詰んでるじゃん」<br>ジビア… <a href="https://t.co/vpd7LO7H5D">https://t.co/vpd7LO7H5D</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1921542590283039107?ref_src=twsrc%5Etfw">May 11, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+### 俺様
+
+公式の画像忘れもいい仕事してる……  
+この時点では全く理解できない子
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「新品のワイシャツがチクチクする」<br>アネット「宿泊先の枕が、中途半端に高い」<br>アネット「良い香りがすると思ったら、ただの排気ガスだった」<br>アネット「――そんなシーンの顔です」<br><br>リリィ　（絶対違うことは分かりますが……）<br>グレーテ（……追及するな、という圧が凄いですね……）… <a href="https://t.co/VQbM3SxDcx">https://t.co/VQbM3SxDcx</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1926605931673952478?ref_src=twsrc%5Etfw">May 25, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 ## その他
 
