@@ -268,6 +268,14 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「新品のワイシャツがチクチクする」<br>アネット「宿泊先の枕が、中途半端に高い」<br>アネット「良い香りがすると思ったら、ただの排気ガスだった」<br>アネット「――そんなシーンの顔です」<br><br>リリィ　（絶対違うことは分かりますが……）<br>グレーテ（……追及するな、という圧が凄いですね……）… <a href="https://t.co/VQbM3SxDcx">https://t.co/VQbM3SxDcx</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1926605931673952478?ref_src=twsrc%5Etfw">May 25, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+### 応援上映
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「サラお姉ちゃんんんんんんんんっ！」<br>アネット「サラの姉貴いいいいいいいいっ！」<br>エルナ　「サラお姉ちゃんんんんんんんんっ！」<br>アネット「サラの姉貴いいいいいいいいっ！」<br>モニカ　「定期的に応援上映になるのなんなん？」<br>リリィ　「もはや叫びたいだけとしか」… <a href="https://t.co/FuvzeLeq5Z">https://t.co/FuvzeLeq5Z</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1927354976415674606?ref_src=twsrc%5Etfw">May 27, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+### あれでも抑えていた…
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「お、背中で語る女たち」<br>ジビア　「な。これはクールな女ども」<br>モニカ　「どうも。実際、気合入れているしね」<br>ティア　「えぇ、ゴールデンコンビと言われる私たちの――」<br>エルナ　「サラお姉ちゃんがボコられたからなの！」<br>ティア　「――ま、そうなのでしょうけどね」<br>サラ… <a href="https://t.co/LeHUCtsRT4">https://t.co/LeHUCtsRT4</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1929544423324704864?ref_src=twsrc%5Etfw">June 2, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他
 
 ### バレンタイン
