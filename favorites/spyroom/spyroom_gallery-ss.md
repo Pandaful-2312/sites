@@ -16,6 +16,7 @@ tag: spyroom
 - [8巻 草原 サラ](#8巻-草原-サラ)
 - [9巻 我楽多 アネット](#9巻-我楽多-アネット)
 - [10巻 高天原 サラ](#10巻-高天原-サラ)
+- [11巻 付焼刃のモニカ](#11巻-付焼刃のモニカ)
 - [その他](#その他)
 
 ## 概要
@@ -275,6 +276,8 @@ SSなし
 ### あれでも抑えていた…
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「お、背中で語る女たち」<br>ジビア　「な。これはクールな女ども」<br>モニカ　「どうも。実際、気合入れているしね」<br>ティア　「えぇ、ゴールデンコンビと言われる私たちの――」<br>エルナ　「サラお姉ちゃんがボコられたからなの！」<br>ティア　「――ま、そうなのでしょうけどね」<br>サラ… <a href="https://t.co/LeHUCtsRT4">https://t.co/LeHUCtsRT4</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1929544423324704864?ref_src=twsrc%5Etfw">June 2, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+## 11巻 付焼刃のモニカ
 
 ## その他
 
