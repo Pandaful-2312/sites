@@ -279,6 +279,18 @@ SSなし
 
 ## 11巻 付焼刃のモニカ
 
+### 情報共有
+
+クラウス……
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ「お久しぶりの振り返りコーナーなの！」<br>リリィ「13巻が発売されたせいで、時系列がいよいよ迷子」<br>モニカ「まだ発売から5日しか経ってないから、詳細は控えるけど……」<br>ジビア「今更な問題があるから、完全無視で‼‼」<br><br>◇◇◇<br><br>サラ　　「自分が捕まった直後のシーンっすね……」<br>エルナ… <a href="https://t.co/tlGcvGmiZk">https://t.co/tlGcvGmiZk</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1937863044081791226?ref_src=twsrc%5Etfw">June 25, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+### スージー登場！
+
+アネットの嫉妬
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">スージー「ワタシの登場ですわ！　おほほー、おほほ！」<br>スージー「お姫様ですわー！」<br>スージー「秘密結社『ＬＷＳ劇団』の団長ですわー！」<br><br>リリィ　「誰？」<br>サラ　　「誰っすかね……？」<br>スージー「アナタたち『灯』の協力者‼‼　エルナに聞いて！」<br>エルナ… <a href="https://t.co/d3FQ5ax77P">https://t.co/d3FQ5ax77P</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1938934420209315854?ref_src=twsrc%5Etfw">June 28, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他
 
 ### バレンタイン
