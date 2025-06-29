@@ -1,8 +1,8 @@
 ---
 layout: post
-title: 小林さんちのメイドラゴン S
+title: 小林さんちのメイドラゴン S *
 category: anime
-date: 2025-06-25
+date: 2025-06-27
 tag: dragonmaid
 ---
 
