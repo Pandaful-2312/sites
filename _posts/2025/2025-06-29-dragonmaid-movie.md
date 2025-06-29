@@ -249,3 +249,13 @@ OP後は日常編
 期間が1週間程度しかなかったため観れてよかったぁ  
 
 ![かくれんぼ]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/kanna_poster.JPG)
+
+### マジやばくねメーカー
+
+カンナの「マジやばくね」のGIFを作れるサイトが公開されている  
+
+＜[マジやばくねメーカー](https://maidragon.jp/movie/maker/)＞
+
+映画をみて感想GIFもつくったよー
+
+![マジやばくねGIF]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/maziyabakune.gif)
