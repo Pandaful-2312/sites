@@ -1,1 +1,1 @@
-exiftool -all= -tagsfromfile @ -orientation -colorspace -overwrite_original
+exiftool -all= -tagsfromfile @ -datetimeoriginal -orientation -colorspace -overwrite_original *.JPG

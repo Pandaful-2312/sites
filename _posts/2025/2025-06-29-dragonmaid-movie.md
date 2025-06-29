@@ -8,7 +8,7 @@ tag: dragonmaid
 
 ## 泣ける……
 
-<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　　　✨本日公開✨<br>◇━━━━━━━━━━━━━◇<br><br>全国200館で大ヒット上映中🐉<br><br>この夏、見逃がせない感動の<br>“家族の物語”がここに‼<br><br>▼公開劇場はこちら🍿<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a>… <a href="https://t.co/rrYLjc0Ghs">pic.twitter.com/rrYLjc0Ghs</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1938416995013431374?ref_src=twsrc%5Etfw">June 27, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+![映画ポスター]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/poster.JPG)  
 
 ### Firmarks
 
@@ -55,6 +55,8 @@ OP後は日常編
 > 「あたしゃ日本人だ」
 
 ここのゴネるトール可愛い
+
+ここまではYouTubeでも公開されている
 
 #### キムンカムイ襲来
 
@@ -211,3 +213,39 @@ OP後は日常編
 > 「有給とるよ」
 
 序盤の伏線回収ー！！
+
+### パンフレット
+
+![グッズ]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/goods.JPG)
+
+今回の購入物は豪華版パンフレット  
+正直買おうかどうか迷っていたが観た後はもう買うしかなかった  
+豪華版なので値段は倍ほどの3500円  
+
+![パンフレット1]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/pamphlet1.JPG)
+
+こちらは通常パンフレット  
+このイラストもいいよなぁ  
+
+![パンフレット2]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/pamphlet2.JPG)
+
+こちらが豪華版の特典  
+カンナとキムンカムイのイラストでキラキラ！  
+
+### 入場者特典
+
+![1週目入場者特典]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/kanna_card.JPG)
+
+入場者特典は今回の主役・カンナ！  
+物悲しい顔なのがあれだが一回で引けて良かった！  
+1週目と明言されているから2週目以降は違うのだろう  
+特典内容がでてから2回目以降を観に行くのもいいかも
+
+### カンナとかくれんぼ
+
+映画と連動して全国各地の駅にそれぞれの県にかくれるカンナのポスターが  
+
+もちろん観に行ったよ！  
+期間が1週間程度しかなかったため観れてよかったぁ  
+
+![かくれんぼ]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/kanna_poster.JPG)
