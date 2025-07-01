@@ -1,9 +1,9 @@
 ---
 layout: post
-title: 小林さんちのメイドラゴン
+title: 小林さんちのメイドラゴン *
 category: anime
 date: 2025-06-25
-tag: dragonmaid
+tag: maidragon
 ---
 
 ## 非日常日常系アニメ！

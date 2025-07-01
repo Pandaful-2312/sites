@@ -3,12 +3,12 @@ layout: post
 title: 映画 小林さんちのメイドラゴン さみしがりやの竜
 category: movie
 date: 2025-06-28
-tag: dragonmaid
+tag: maidragon
 ---
 
 ## 泣ける…… ファン待望の映画化！
 
-![映画ポスター]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/poster.JPG)  
+![映画ポスター]({{site.baseurl}}/pic/maidragon/lonely-dragon/poster.JPG)  
 
 ### Firmarks
 
@@ -229,25 +229,25 @@ Firmarksの評価も4近くで収束しそうで満足している人のほう�
 
 ### パンフレット
 
-![グッズ]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/goods.JPG)
+![グッズ]({{site.baseurl}}/pic/maidragon/lonely-dragon/goods.JPG)
 
 今回の購入物は豪華版パンフレット  
 正直買おうかどうか迷っていたが観た後はもう買うしかなかった  
 豪華版なので値段は倍ほどの3500円  
 
-![パンフレット1]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/pamphlet1.JPG)
+![パンフレット1]({{site.baseurl}}/pic/maidragon/lonely-dragon/pamphlet1.JPG)
 
 こちらは通常パンフレット  
 このイラストもいいよなぁ  
 
-![パンフレット2]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/pamphlet2.JPG)
+![パンフレット2]({{site.baseurl}}/pic/maidragon/lonely-dragon/pamphlet2.JPG)
 
 こちらが豪華版の特典  
 カンナとキムンカムイのイラストでキラキラ！  
 
 ### 入場者特典
 
-![1週目入場者特典]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/kanna_card.JPG)
+![1週目入場者特典]({{site.baseurl}}/pic/maidragon/lonely-dragon/kanna_card.JPG)
 
 入場者特典は今回の主役・カンナ！  
 物悲しい顔なのがあれだが一回で引けて良かった！  
@@ -261,7 +261,7 @@ Firmarksの評価も4近くで収束しそうで満足している人のほう�
 もちろん観に行ったよ！  
 期間が1週間程度しかなかったため観れてよかったぁ  
 
-![かくれんぼ]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/kanna_poster.JPG)
+![かくれんぼ]({{site.baseurl}}/pic/maidragon/lonely-dragon/kanna_poster.JPG)
 
 ### マジやばくねメーカー
 
@@ -271,4 +271,4 @@ Firmarksの評価も4近くで収束しそうで満足している人のほう�
 
 映画をみて感想GIFもつくったよー
 
-![マジやばくねGIF]({{site.baseurl}}/pic/dragonmaid/lonley-dragon/maziyabakune.gif)
+![マジやばくねGIF]({{site.baseurl}}/pic/maidragon/lonely-dragon/maziyabakune.gif)
