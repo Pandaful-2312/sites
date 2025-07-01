@@ -54,9 +54,15 @@ OP後は日常編
 > 「なーに日本人みたいなこと言ってんですかぁ」  
 > 「あたしゃ日本人だ」
 
-ここのゴネるトール可愛い
+ここのゴネるトールが可愛い
 
 ここまではYouTubeでも公開されている
+
+＜OP映像＞
+<iframe width="560" height="315" src="https://www.youtube.com/embed/WXEEdxdxQ1g?si=wXMA6qvZwkRs-sLa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+＜本編冒頭10分＞
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DgEgW0ILsDk?si=LyPurF1tgihJbhIR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 #### キムンカムイ襲来
 
