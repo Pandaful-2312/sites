@@ -227,6 +227,20 @@ OP後は日常編
 
 Firmarksの評価も4近くで収束しそうで満足している人のほうが多そう  
 
+### 舞台挨拶
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">*◇*◆*◇*◆*◇*◆*◇*◆*◇*◆*<br>　🐉🎊公開記念舞台挨拶🎊🐉<br>　　@ 丸の内ピカデリー<br>　　ライブビューイング🎬<br>*◇*◆*◇*◆*◇*◆*◇*◆*◇*◆*<br><br>お越しいただいた皆様<br>ライブビューイングでご覧いただいた皆様<br>ありがとうございました✨<br>　<br>総勢11名登壇の豪華舞台挨拶<br>いかがでしたでしょうか❓… <a href="https://t.co/5iWHPp9aLU">pic.twitter.com/5iWHPp9aLU</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1939208886193660054?ref_src=twsrc%5Etfw">June 29, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+6月29日 10:45- の舞台挨拶LV付きを閲覧  
+この回は映画後の舞台挨拶だったのでネタバレあり！
+
+キャスト＋監督で11名だったため一人ひとりの話す時間は必然的になってしまうが、多くの人の話がきけてよかった！  
+ネタバレありだったのでラストのカンナのシーンについても聞けてよかったー  
+あとは小野Dのファフッさんの戦闘シーンの声入りの話も面白かった  
+
+小野Dと中村さんの絡みもいい  
+滝谷と翔太くんは出番ほぼないからほぼ話すことなかったのも面白い  
+
 ### パンフレット
 
 ![グッズ]({{site.baseurl}}/pic/maidragon/lonely-dragon/goods.JPG)

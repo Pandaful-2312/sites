@@ -291,6 +291,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">スージー「ワタシの登場ですわ！　おほほー、おほほ！」<br>スージー「お姫様ですわー！」<br>スージー「秘密結社『ＬＷＳ劇団』の団長ですわー！」<br><br>リリィ　「誰？」<br>サラ　　「誰っすかね……？」<br>スージー「アナタたち『灯』の協力者‼‼　エルナに聞いて！」<br>エルナ… <a href="https://t.co/d3FQ5ax77P">https://t.co/d3FQ5ax77P</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1938934420209315854?ref_src=twsrc%5Etfw">June 28, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+### 成長した姿
+
+あのリボン・ネクタイにそんな意味があったとは
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「ティアお姉ちゃんとモニカお姉ちゃんの合流シーンなの！」<br>サラ　　「お二人ともカッコいいっすね……！」<br>アネット「？　ジビアの姉貴は、どこですか？」<br>リリィ　「あれまぁ、とっくに合流しているのに姿形もなし」<br>ジビア　「そういうのいいから……」<br><br>◇◇◇<br><br>ジビア… <a href="https://t.co/1eFzbqh0xE">https://t.co/1eFzbqh0xE</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1940022998435614846?ref_src=twsrc%5Etfw">July 1, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他
 
 ### バレンタイン
