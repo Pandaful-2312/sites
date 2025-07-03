@@ -202,6 +202,8 @@ OP後は日常編
 カンナ自体が涙ぐむシーンはこれまでのアニメでもあったが、これは人間を騙す・人間世界に馴染むための嘘泣き（であったと思う）  
 けど、このシーンの涙はカンナの心からの涙だろう  
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Cuz9x27kKE?si=MBdB5VDXA8BdqLnD&amp;start=109" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 #### 才川との再開
 
 はじめは人間界へ戻るつもりはなかったカンナだったがキムンカムイにいつでの帰ってきていい、たまには遊びに行ってやると言われたため帰ってきたカンナ  
