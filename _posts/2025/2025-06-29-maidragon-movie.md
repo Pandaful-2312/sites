@@ -202,7 +202,7 @@ OP後は日常編
 カンナ自体が涙ぐむシーンはこれまでのアニメでもあったが、これは人間を騙す・人間世界に馴染むための嘘泣き（であったと思う）  
 けど、このシーンの涙はカンナの心からの涙だろう  
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Cuz9x27kKE?si=MBdB5VDXA8BdqLnD&amp;start=109" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">||◤　　　　　　　 ◥||<br>　　さみしかった<br>||◣　　　　　　　 ◢||<br><br>映画<br>『小林さんちのメイドラゴン<br>　さみしがりやの竜』<br>大ヒットを記念して新PVを公開🐉✨<br><br>挿入歌のコトリンゴさん「ねがいごと」が<br>聞けちゃいます🎶<br><br>心が温まる本作をぜひ劇場で🍿💞<a href="https://t.co/Qg3Qrro15q">https://t.co/Qg3Qrro15q</a>… <a href="https://t.co/fiexMFhZP3">pic.twitter.com/fiexMFhZP3</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1940697031657259306?ref_src=twsrc%5Etfw">July 3, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 #### 才川との再開
 
