@@ -297,6 +297,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「ティアお姉ちゃんとモニカお姉ちゃんの合流シーンなの！」<br>サラ　　「お二人ともカッコいいっすね……！」<br>アネット「？　ジビアの姉貴は、どこですか？」<br>リリィ　「あれまぁ、とっくに合流しているのに姿形もなし」<br>ジビア　「そういうのいいから……」<br><br>◇◇◇<br><br>ジビア… <a href="https://t.co/1eFzbqh0xE">https://t.co/1eFzbqh0xE</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1940022998435614846?ref_src=twsrc%5Etfw">July 1, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+### ニケとの対峙
+
+まさかニケまでここに登場するとは
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ティア　「モニカが、ニケさんを打倒したシーンね」<br>エルナ　「凄すぎるの‼‼」<br>グレーテ「まさか、勝ってしまうとは……ですね……」<br>サラ　　「自分が獄中にいる時、まさかこんな事態が起きるとは！」<br>リリィ　「右に同じ‼‼」<br>モニカ　「ま、一時の勝利に過ぎないんだけどね」<br>ジビア… <a href="https://t.co/S9BWwgZmY4">https://t.co/S9BWwgZmY4</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1942211585747161097?ref_src=twsrc%5Etfw">July 7, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他
 
 ### バレンタイン
