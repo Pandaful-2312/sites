@@ -202,11 +202,9 @@ OP後は日常編
 カンナ自体が涙ぐむシーンはこれまでのアニメでもあったが、これは人間を騙す・人間世界に馴染むための嘘泣き（であったと思う）  
 けど、このシーンの涙はカンナの心からの涙だろう  
 
-<iframe width="471" height="838" src="https://www.youtube.com/embed/-IhTw7m6YDc" title="映画『小林さんちのメイドラゴン さみしがりやの竜』大ヒット上映中！【ずっとずっとさびしかった】" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">╭━━━━━━━━━━━━━╮<br>　 ずっとずっとさびしかった<br>╰━ｖ━━━━━━━━━━━╯<br>映画のワンシーンをちょい見せ👀💧<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/cMwZuEOFMS">https://t.co/cMwZuEOFMS</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/ZJEjnoXp2X">pic.twitter.com/ZJEjnoXp2X</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1945302364040077585?ref_src=twsrc%5Etfw">July 16, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-<!-- <iframe width="560" height="315" src="https://www.youtube.com/embed/2Cuz9x27kKE?si=CuXAIF3s1ozTz7sr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> -->
-
-<!-- <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">||◤　　　　　　　 ◥||<br>　　さみしかった<br>||◣　　　　　　　 ◢||<br><br>映画<br>『小林さんちのメイドラゴン<br>　さみしがりやの竜』<br>大ヒットを記念して新PVを公開🐉✨<br><br>挿入歌のコトリンゴさん「ねがいごと」が<br>聞けちゃいます🎶<br><br>心が温まる本作をぜひ劇場で🍿💞<a href="https://t.co/Qg3Qrro15q">https://t.co/Qg3Qrro15q</a>… <a href="https://t.co/fiexMFhZP3">pic.twitter.com/fiexMFhZP3</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1940697031657259306?ref_src=twsrc%5Etfw">July 3, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> -->
+公式さん…… 公開中なのにここ観せちゃっていいんですか!?
 
 #### 才川との再開
 
@@ -410,3 +408,7 @@ MX4Dでは
 #### お茶する小林
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/cMwZuEPdCq">https://t.co/cMwZuEPdCq</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/uyHCB19jyM">pic.twitter.com/uyHCB19jyM</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1945272167182295066?ref_src=twsrc%5Etfw">July 16, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### 番外編：オタ芸 滝谷・ファフッさん
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◥◣🙌応援上映🙌◢◤<br><br>歓声・歌唱・拍手・手拍子・コスプレOK👏🐉💃<br>うちわ・サイリウム・ぬいぐるみの<br>持ち込みもOK📢🙌<br><br>📍7月26日（土）14時00分の回<br>📍新宿ピカデリー<br><br>本日この後24時からチケット販売スタート✨️<br>ぜひチェックしてください🐉<a href="https://t.co/aD7bxhdcH6">https://t.co/aD7bxhdcH6</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a>… <a href="https://t.co/0XCqbbLL3Z">pic.twitter.com/0XCqbbLL3Z</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1945471407821136178?ref_src=twsrc%5Etfw">July 16, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
