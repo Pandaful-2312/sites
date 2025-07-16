@@ -1,1 +1,1 @@
-exiftool -all= -tagsfromfile @ -datetimeoriginal -orientation -colorspace -overwrite_original *.JPG
+exiftool -r -all= -tagsfromfile @ -datetimeoriginal -orientation -colorspace -icc_profile -overwrite_original .
