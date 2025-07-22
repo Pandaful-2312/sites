@@ -357,7 +357,7 @@ MX4Dでは
 
 ### 公式X GIF
 
-#### 駄々こねカンナ
+#### 駄々こね
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/QzxumejOgy">https://t.co/QzxumejOgy</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/M20BYoUmkh">pic.twitter.com/M20BYoUmkh</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1940198735470035441?ref_src=twsrc%5Etfw">July 2, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
@@ -373,7 +373,7 @@ MX4Dでは
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/hjV54PCK3D">https://t.co/hjV54PCK3D</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/MPX30NkEBG">pic.twitter.com/MPX30NkEBG</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1941648288433705261?ref_src=twsrc%5Etfw">July 6, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-#### ピョンピョンカンナ
+#### ピョンピョン
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/hjV54PDhTb">https://t.co/hjV54PDhTb</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/GZG9bOgYKQ">pic.twitter.com/GZG9bOgYKQ</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1942010680607199334?ref_src=twsrc%5Etfw">July 7, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
@@ -408,6 +408,22 @@ MX4Dでは
 #### お茶する小林
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/cMwZuEPdCq">https://t.co/cMwZuEPdCq</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/uyHCB19jyM">pic.twitter.com/uyHCB19jyM</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1945272167182295066?ref_src=twsrc%5Etfw">July 16, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### 丸呑みエルマ
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/cMwZuEPdCq">https://t.co/cMwZuEPdCq</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/C0aXFJuv0y">pic.twitter.com/C0aXFJuv0y</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1945634557082079662?ref_src=twsrc%5Etfw">July 17, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### 不敵な笑みアーザード
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/gCcnp3SQa5">https://t.co/gCcnp3SQa5</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/1yWOVAfZsN">pic.twitter.com/1yWOVAfZsN</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1946359334293647537?ref_src=twsrc%5Etfw">July 19, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### 怒り心頭イルル
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/gCcnp3TnZD">https://t.co/gCcnp3TnZD</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/jmmUSE0uxg">pic.twitter.com/jmmUSE0uxg</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1946721721358442795?ref_src=twsrc%5Etfw">July 20, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### 操られキムンカムイ
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/gCcnp3SQa5">https://t.co/gCcnp3SQa5</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/kx3ELVrGUh">pic.twitter.com/kx3ELVrGUh</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947084106887549039?ref_src=twsrc%5Etfw">July 21, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 #### 番外編：オタ芸 滝谷・ファフッさん
 
