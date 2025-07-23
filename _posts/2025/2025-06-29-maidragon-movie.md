@@ -331,6 +331,7 @@ MX4Dでは
 
 - 2週目：[メッセージ付きフォト風イラストカード](https://maidragon.jp/news/archives/2120)
 - 4週目：[カンナのクリアスタンドコレクション](https://maidragon.jp/news/archives/2161)
+- 5週目：[カンナ名シーンフィルム風しおり](https://maidragon.jp/news/archives/2164)
 
 どれもいいけど、流石に全部見に行くのはお金が……
 
@@ -424,6 +425,14 @@ MX4Dでは
 #### 操られキムンカムイ
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/gCcnp3SQa5">https://t.co/gCcnp3SQa5</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/kx3ELVrGUh">pic.twitter.com/kx3ELVrGUh</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947084106887549039?ref_src=twsrc%5Etfw">July 21, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### ブンブン才川
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/gCcnp3SQa5">https://t.co/gCcnp3SQa5</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/DWVaeI5FPW">pic.twitter.com/DWVaeI5FPW</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947446499043905586?ref_src=twsrc%5Etfw">July 22, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+#### 逃げる小林
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/gCcnp3TnZD">https://t.co/gCcnp3TnZD</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/artdRU4YpI">pic.twitter.com/artdRU4YpI</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947808885844361333?ref_src=twsrc%5Etfw">July 23, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 #### 番外編：オタ芸 滝谷・ファフッさん
 
