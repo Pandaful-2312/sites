@@ -33,6 +33,7 @@ permalink: /
 - [Favorites](./favorites)：特に好きな作品
 
     - [五等分の花嫁](./gotobun)
+    - [小林さんちのメイドラゴン](./maidragon)
     - [冴えない彼女の育てかた](./saekano)
     - [スパイ教室](./spyroom)
     - [ソードアート・オンライン](./sao)
