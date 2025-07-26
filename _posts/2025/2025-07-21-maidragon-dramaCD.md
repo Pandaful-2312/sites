@@ -8,6 +8,8 @@ tag: maidragon
 
 ## 探し求めていたドラマCD！
 
+![ドラマCD]({{site.baseurl}}/pic/maidragon/other/doramaCD.jpg)  
+
 メイドラゴンにハマってから探し続けていたドラマCDを難波の駿河屋で発見！  
 CDに収録されている新規楽曲「THE DORAGON KING」だけはストリーミングサービスで配信されていたがボイスドラマ自体は未収録  
 やっと手に入れたぜ！
@@ -30,3 +32,5 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 前の話と合わせるため、小林家御一行と出会う部分が追加されている
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FqDlTdvIIJI?si=dBAg5etba8RMcjsf&amp;start=357" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+#### 3. 
