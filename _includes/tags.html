@@ -11,7 +11,9 @@
                 <h2><a href="{{p.url | relative_url }}">{{p.title | escape}}</a></h2>
                 {% assign flag = 1 %}
             {% else %}
-                <li><a href="{{p.url | relative_url }}">{{p.title | escape }}</a></li>
+                {% unless p.read %}
+                    <li><a href="{{p.url | relative_url }}">{{p.title | escape }}</a></li>
+                {% endunless %}
             {% endif %}
         {% endfor %}
 
