@@ -43,13 +43,13 @@ read: read
 
 ### カンナ すぺしゃるメッセージ
 
-[マジやばくねカウンター](https://maidragon.jp/movie/counter/)が2千万達成のプレゼントとして公開された
+[マジやばくねカウンター](https://maidragon.jp/movie/counter/)の2千万達成のプレゼントとして公開された
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/5a7HAyl7HAU?si=VlAqS41e-T5clBEH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ### スーパーちょろゴンずのなまほうそう！
 
-同じくマジやばくねカウンターが2千5百万達成のプレゼントとして行われた生放送  
+同じくマジやばくねカウンターの2千5百万達成のプレゼントとして行われた生放送  
 こちらはぽにきゃんのYouTubeチャンネルで公開  
 
 出演：長縄まりあ、田村睦心、桑原由気、高田憂希、髙橋ミナミ、杉浦しおり
