@@ -355,3 +355,8 @@ MX4Dでは
 映画をみて感想GIFもつくったよー
 
 ![マジやばくねGIF]({{site.baseurl}}/pic/maidragon/lonely-dragon/maziyabakune.gif)
+
+### Gallary
+
+映画公開に合わせて、公式Xや京アニYouTubeチャンネルで様々なコンテンツが公開されている  
+ここに載せるとあまりにも長くなったため[別ページ]({{site.baseurl}}/maidragon/lonely-dragon-gallary)へ
