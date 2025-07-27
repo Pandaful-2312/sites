@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 カンナと全国かくれんぼ
-permalink: maidragon/lonely-dragon-gallary/kanna_posters
+permalink: maidragon/lonely-dragon-gallary/kanna_poster
 tag: maidragon
 read: read
 ---
