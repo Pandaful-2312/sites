@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 イシュカンPV
-permalink: maidragon/lonely-dragon-gallary/isyukanPV
+permalink: maidragon/lonely-dragon-gallery/isyukanPV
 tag: maidragon
 read: read
 ---

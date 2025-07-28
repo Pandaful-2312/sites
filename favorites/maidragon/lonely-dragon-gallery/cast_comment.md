@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 キャストコメント
-permalink: maidragon/lonely-dragon-gallary/cast_comment
+permalink: maidragon/lonely-dragon-gallery/cast_comment
 tag: maidragon
 read: read
 ---

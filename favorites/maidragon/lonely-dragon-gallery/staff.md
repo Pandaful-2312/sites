@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 スタッフイラスト集
-permalink: maidragon/lonely-dragon-gallary/staff
+permalink: maidragon/lonely-dragon-gallery/staff
 tag: maidragon
 read: read
 ---

@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 映画シーンGIF
-permalink: maidragon/lonely-dragon-gallary/scene_gif
+permalink: maidragon/lonely-dragon-gallery/scene_gif
 tag: maidragon
 read: read
 ---

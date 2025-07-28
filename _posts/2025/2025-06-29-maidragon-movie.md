@@ -359,4 +359,4 @@ MX4Dでは
 ### Gallary
 
 映画公開に合わせて、公式Xや京アニYouTubeチャンネルで様々なコンテンツが公開されている  
-ここに載せるとあまりにも長くなったため[別ページ]({{site.baseurl}}/maidragon/lonely-dragon-gallary)へ
+ここに載せるとあまりにも長くなったため[別ページ]({{site.baseurl}}/maidragon/lonely-dragon-gallery)へ

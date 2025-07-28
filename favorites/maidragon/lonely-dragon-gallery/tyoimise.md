@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 映画ワンシーンちょい見せ！
-permalink: maidragon/lonely-dragon-gallary/tyoimise
+permalink: maidragon/lonely-dragon-gallery/tyoimise
 tag: maidragon
 read: read
 ---

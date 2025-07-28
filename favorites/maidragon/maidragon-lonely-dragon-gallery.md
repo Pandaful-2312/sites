@@ -1,7 +1,7 @@
 ---
 layout: page
-title: 映画 小林さんちのメイドラゴン さみしがりやの竜 Gallary
-permalink: maidragon/lonely-dragon-gallary
+title: 映画 小林さんちのメイドラゴン さみしがりやの竜 Gallery
+permalink: maidragon/lonely-dragon-gallery
 tag: maidragon
 ---
 
@@ -12,26 +12,26 @@ tag: maidragon
 
 全部このページに埋め込んでいたら重くなったので個別ページへ
 
-- [映画PV・CM](./lonely-dragon-gallary/PV)  
+- [映画PV・CM](./lonely-dragon-gallery/PV)  
     映画公開前・後のPV及びCM集（YouTube）
 
-- [キャストコメント](./lonely-dragon-gallary/cast_comment)  
+- [キャストコメント](./lonely-dragon-gallery/cast_comment)  
     映画製作決定・舞台挨拶後の出演声優の動画コメント集（YouTube）
 
-- [制作スタッフイラスト](./lonely-dragon-gallary/staff)  
+- [制作スタッフイラスト](./lonely-dragon-gallery/staff)  
     映画制作スタッフのイラスト集（X＆YouTube）
 
-- [映画シーン GIF](./lonely-dragon-gallary/scene_gif)  
+- [映画シーン GIF](./lonely-dragon-gallery/scene_gif)  
     映画シーンのGIF画像集（X）
 
-- [映画ワンシーン ちょい見せ！](./lonely-dragon-gallary/tyoimise)  
+- [映画ワンシーン ちょい見せ！](./lonely-dragon-gallery/tyoimise)  
     カンナの映画ワンシーン集（YouTubeショート）
 
-- [カンナと全国かくれんぼ](./lonely-dragon-gallary/kanna_poster)  
+- [カンナと全国かくれんぼ](./lonely-dragon-gallery/kanna_poster)  
     カンナの全国JR駅内ポスター集（X）
 
-- [イシュカンPV](./lonely-dragon-gallary/isyukanPV)  
+- [イシュカンPV](./lonely-dragon-gallery/isyukanPV)  
     様々な組み合わせのショートPV集（X）
 
-- [その他 映像](./lonely-dragon-gallary/other_movie)  
+- [その他 映像](./lonely-dragon-gallery/other_movie)  
     OPやEDなどのその他公開されている映像（YouTube）

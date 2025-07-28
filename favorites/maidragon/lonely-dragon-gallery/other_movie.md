@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 映画 さみしがりやの竜 その他 映像集
-permalink: maidragon/lonely-dragon-gallary/other_movie
+permalink: maidragon/lonely-dragon-gallery/other_movie
 tag: maidragon
 read: read
 ---
