@@ -5,7 +5,7 @@ permalink: maidragon/lonely-dragon-gallery
 tag: maidragon
 ---
 
-## さみしがりやの竜 Gallary
+## さみしがりやの竜 Gallery
 
 公式X、Youtubeチャンネルで様々な動画や写真、GIFなどが公開されているのでまとめておくページ  
 おそらくほとんどのコンテンツをカバーできているはず！
