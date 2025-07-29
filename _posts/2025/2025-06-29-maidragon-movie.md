@@ -309,7 +309,7 @@ MX4Dでは
 
 ![1週目入場者特典]({{site.baseurl}}/pic/maidragon/lonely-dragon/kanna_card.JPG)
 
-1週目入場者特典は[ミニ色紙](https://maidragon.jp/news/archives/2033)で、ゲットしたのは今回の主役・カンナ！  
+1週目入場者特典は[ミニ色紙](https://maidragon.jp/news/archives/2033)（全6種）で、ゲットしたのは今回の主役・カンナ！  
 物悲しい顔なのがあれだが一回で引けて良かった！  
 1週目と明言されているから2週目以降は違うのだろう  
 特典内容がでてから2回目以降を観に行くのもいいかも
@@ -318,7 +318,7 @@ MX4Dでは
 
 ![2週目入場者特典]({{site.baseurl}}/pic/maidragon/lonely-dragon/kanna_comic.JPG)
 
-2回目は3週目の原作者描き下ろしの[すぺしゃるコミック](https://maidragon.jp/news/archives/2129)のときに！  
+2回目は3週目の原作者描き下ろしの[すぺしゃるコミック](https://maidragon.jp/news/archives/2129)（全2種）のときに！  
 全2種で①をゲット！  
 
 ①はカンナが龍玉を割った経緯が描かれてある  
@@ -329,9 +329,10 @@ MX4Dでは
 
 ゲットしなかった入場者特典
 
-- 2週目：[メッセージ付きフォト風イラストカード](https://maidragon.jp/news/archives/2120)
-- 4週目：[カンナのクリアスタンドコレクション](https://maidragon.jp/news/archives/2161)
-- 5週目：[カンナ名シーンフィルム風しおり](https://maidragon.jp/news/archives/2164)
+- 2週目：[メッセージ付きフォト風イラストカード](https://maidragon.jp/news/archives/2120)（全6種）
+- 4週目：[カンナのクリアスタンドコレクション](https://maidragon.jp/news/archives/2161)（全5種）
+- 5週目：[カンナ名シーンフィルム風しおり](https://maidragon.jp/news/archives/2164)（全10種）
+- 6週目：[特製フレークシールセット](https://maidragon.jp/news/archives/2188)（全3種）
 
 どれもいいけど、流石に全部見に行くのはお金が……
 
