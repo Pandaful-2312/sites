@@ -61,6 +61,10 @@ read: read
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━╮<br>　山いっぱいあった！<br>╰━ｖ━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉山梨🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/C9pCdsbYAv">pic.twitter.com/C9pCdsbYAv</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1949741868071137620?ref_src=twsrc%5Etfw">July 28, 2025</a></blockquote>
 
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━╮<br>　わさびカラ～<br>╰━ｖ━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉静岡🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/Z09RAQ1DO0">pic.twitter.com/Z09RAQ1DO0</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1950104011966705907?ref_src=twsrc%5Etfw">July 29, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━━╮<br>　キンキラの<br>　ソフトクリーム食べた！<br>╰━ｖ━━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉石川🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/4FLPRnB95S">pic.twitter.com/4FLPRnB95S</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1950104255848992978?ref_src=twsrc%5Etfw">July 29, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 #### 近畿
 
 #### 中国・四国

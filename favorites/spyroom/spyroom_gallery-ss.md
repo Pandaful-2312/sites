@@ -17,6 +17,7 @@ tag: spyroom
 - [9巻 我楽多 アネット](#9巻-我楽多-アネット)
 - [10巻 高天原 サラ](#10巻-高天原-サラ)
 - [11巻 付焼刃のモニカ](#11巻-付焼刃のモニカ)
+- [12巻 万愚節のエルナ](#12巻-万愚節のエルナ)
 - [その他](#その他)
 
 ## 概要
@@ -308,6 +309,14 @@ SSなし
 ニケとモニカの関係性が……
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">モニカ　「…………………………」<br>モニカ　「…………………………」<br>モニカ　「…………………………」<br>モニカ　「…………………………」<br>モニカ　「…………………………」<br><br>エルナ　「モニカお姉ちゃんの獄中なの！」<br>ジビア　「リリィと再会したタイミングだっけ？」… <a href="https://t.co/30jPBHw6dd">https://t.co/30jPBHw6dd</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1942562012711772470?ref_src=twsrc%5Etfw">July 8, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+## 12巻 万愚節のエルナ
+
+### グレーテ合流
+
+13巻を読んだ後だと……
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「グレーテちゃんの合流シーンですね！」<br>モニカ　「革命１日目は、グレーテがいなければ乗り越えられなかったよ」<br>サラ　　「さすがグレーテ先輩っす！　大活躍っすね！」<br><br>三人　　「「「ま、自分たちはその場にいないんですけど！！」」」<br><br>ジビア　「黙ってろ、獄中トリオ」<br>ティア… <a href="https://t.co/zLk0GyQpPj">https://t.co/zLk0GyQpPj</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1950532750378992068?ref_src=twsrc%5Etfw">July 30, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 ## その他
 
