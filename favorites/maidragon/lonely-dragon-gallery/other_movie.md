@@ -41,15 +41,21 @@ read: read
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/hW27cz-gA7k?si=Tj_3qjWh04lq5kME" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+### 映画ポスター
+
+[マジやばくねカウンター](https://maidragon.jp/movie/counter/)の1500万達成のプレゼントとして公開されたポスター
+
+大ヒット御礼！として、各キャラ個別でダウンロードできるように公開された（[リンク](https://maidragon.jp/news/archives/2174)）
+
 ### カンナ すぺしゃるメッセージ
 
-[マジやばくねカウンター](https://maidragon.jp/movie/counter/)の2千万達成のプレゼントとして公開された
+同じくマジやばくねカウンターの2000万達成のプレゼントとして公開された映像
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/5a7HAyl7HAU?si=VlAqS41e-T5clBEH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ### スーパーちょろゴンずのなまほうそう！
 
-同じくマジやばくねカウンターの2千5百万達成のプレゼントとして行われた生放送  
+同じくマジやばくねカウンターの2500万達成のプレゼントとして行われた生放送  
 こちらはぽにきゃんのYouTubeチャンネルで公開  
 
 出演：長縄まりあ、田村睦心、桑原由気、高田憂希、髙橋ミナミ、杉浦しおり
@@ -80,6 +86,18 @@ read: read
 これを少し観てハマった！
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lyV2ir7Crqs?si=DZRrq9zyK0STpiFe" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+### キャストみんなで 「涙のパレード」 ダンス動画
+
+出演：fhána、小林幸子、長縄まりあ、田村睦心、桑原由気、高田憂希、髙橋ミナミ、杉浦しおり
+
+<iframe width="395" height="702" src="https://www.youtube.com/embed/jN-kMUPhkZo" title="#fhána さん #小林幸子さん キャストみんなで「涙のパレード」ダンス動画💃" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+### fhána・佐藤純一 独占インタビュー
+
+fhánaリーダーの佐藤さんのインタビュー動画
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ySx_0RpQE08?si=VQLeaF0hzZYtwYt6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ### アーザード特別映像
 
