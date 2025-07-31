@@ -6,6 +6,8 @@ tag: maidragon
 read: read
 ---
 
+<script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他 映像集
 
 その他にも様々な映像コンテンツが京アニYouTubeチャンネルで公開されている
@@ -93,6 +95,7 @@ read: read
 
 <iframe width="395" height="702" src="https://www.youtube.com/embed/jN-kMUPhkZo" title="#fhána さん #小林幸子さん キャストみんなで「涙のパレード」ダンス動画💃" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">.˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚.<br>「涙のパレード」ダンスレクチャー動画<br>.˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚.<br><br>みんなのkevinくんが<a href="https://twitter.com/hashtag/%E5%B0%8F%E6%9E%97%E5%B9%B8%E5%AD%90%E3%81%95%E3%82%93?src=hash&amp;ref_src=twsrc%5Etfw">#小林幸子さん</a> とキャスト皆さまに<br>「涙のパレード」の振付をレクチャー！<br>ぜひ皆さんも踊ってみてください🙌<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/oxypdDNQPO">pic.twitter.com/oxypdDNQPO</a></p>&mdash; fhána_info (@fhana_info) <a href="https://twitter.com/fhana_info/status/1950881026026197392?ref_src=twsrc%5Etfw">July 31, 2025</a></blockquote>
 ### fhána・佐藤純一 独占インタビュー
 
 fhánaリーダーの佐藤さんのインタビュー動画
@@ -108,3 +111,23 @@ fhánaリーダーの佐藤さんのインタビュー動画
 <iframe width="560" height="315" src="https://www.youtube.com/embed/9ij_rJ2HgGA?si=VTGT6tVSg6BwXu3C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FXDgDafqKOM?si=V5XM2kf8HuZmQGx5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+### MX4D体験してみた
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">▶▶▶ MX4D体験してみた◀◀◀<br><br>スタッフが一足早くMX4Dを体験🐉💥<br>⚠️顔はキムンカムイですが、とても楽しんでいます<br><br>4DX／MX4Dも6月27日（金）同時公開🎥<br><br>全身で「メイドラゴン」を体感してください🐉🙌<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 6月27日(金)公開！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/udkK6SlZGs">pic.twitter.com/udkK6SlZGs</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1937809330822316430?ref_src=twsrc%5Etfw">June 25, 2025</a></blockquote>
+
+### スタッフトーク付き上映会 ポスト
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　7月24日(木)19:00～<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/MT59fEWEQt">https://t.co/MT59fEWEQt</a><br><br>＼門脇未来さん・キャラデザのおしごとを語る／<br>✅<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 用にキャラデザを調整？<br>✅私服設定ココだけのお話！… <a href="https://t.co/XdAvyqCghe">pic.twitter.com/XdAvyqCghe</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947582388088758477?ref_src=twsrc%5Etfw">July 22, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　7月24日(木)19:00～<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/MT59fEXcG1">https://t.co/MT59fEXcG1</a><br><br>＼髙橋奈緖美さん・色彩設計のおしごとを語る／<br>✅ペイントの貴重な素材を大公開！<br>✅色づくりのポイントとこだわり！… <a href="https://t.co/ajQJkIL2Br">pic.twitter.com/ajQJkIL2Br</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947582640372256989?ref_src=twsrc%5Etfw">July 22, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　7月24日(木)19:00～<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/MT59fEXcG1">https://t.co/MT59fEXcG1</a><br><br>＼笠井信吾さん・美術監督のおしごとを語る／<br>✅映画用の背景へのこだわり！<br>✅カンナの名シーン「ススキ」の話！… <a href="https://t.co/hucT278kyO">pic.twitter.com/hucT278kyO</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947944784557187258?ref_src=twsrc%5Etfw">July 23, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　7月24日(木)19:00～<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/MT59fEXcG1">https://t.co/MT59fEXcG1</a><br><br>＼石原立也さん・監督のおしごとを語る／<br>✅京都アニメーションの監督って何をするの？<br>✅<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> に込めた想いとは？… <a href="https://t.co/L0ZARTvDvq">pic.twitter.com/L0ZARTvDvq</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947945028736966933?ref_src=twsrc%5Etfw">July 23, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　本日19:00～より<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都　のこりわずか！<a href="https://t.co/MT59fEXcG1">https://t.co/MT59fEXcG1</a><br><br>京アニスタッフが未公開資料をたっぷり準備しました✨<br>本日は配信と収録がございません！… <a href="https://t.co/Ava0eQ2tNl">pic.twitter.com/Ava0eQ2tNl</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1948216819812384798?ref_src=twsrc%5Etfw">July 24, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◥◣アニメ制作スタッフトーク付き上映第2⃣弾◢◤ <br>📍8月7日（木）19時の回／上映前<br>📍 MOVIX京都<br><br>京都アニメーションのメインスタッフ再び集結🖊🐉<br>第2弾は、演出や撮影処理・３DCGなど<br>より制作の核心や最新技術に迫るスタッフが登壇✨<br><br>📍石原立也（監督）<br>　北之原孝將(演出)… <a href="https://t.co/ximZHW15kN">pic.twitter.com/ximZHW15kN</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1948329815763018161?ref_src=twsrc%5Etfw">July 24, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◥◣アニメ制作スタッフトーク付き上映第2⃣弾◢◤ <br>📍8月7日（木）19時の回／上映前<br>📍 MOVIX京都　販売中🎫<a href="https://t.co/MT59fEXcG1">https://t.co/MT59fEXcG1</a><br><br>来週は、演出や撮影処理・３DCGなど<br>より制作の核心や最新技術に迫る京アニスタッフが登壇✨<br>クリエイターを目指す皆さんも必見👀… <a href="https://t.co/dy2KDrLC3f">pic.twitter.com/dy2KDrLC3f</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1950889195263996233?ref_src=twsrc%5Etfw">July 31, 2025</a></blockquote>
