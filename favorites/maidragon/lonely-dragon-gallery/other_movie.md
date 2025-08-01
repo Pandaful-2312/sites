@@ -8,17 +8,33 @@ read: read
 
 <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-## その他 映像集
-
 その他にも様々な映像コンテンツが京アニYouTubeチャンネルで公開されている
 
-### 映画 ノンテロップオープニング
+- [映画 ノンテロップオープニング](#映画-ノンテロップオープニング)
+- [映画 本編冒頭10分](#映画-本編冒頭10分)
+- [『ぼくたちの日々』 カンナ Ver. すぺしゃる映像](#ぼくたちの日々-カンナ-ver-すぺしゃる映像)
+- [映画公開 特別番組](#映画公開-特別番組)
+- [映画ポスター](#映画ポスター)
+- [カンナ すぺしゃるメッセージ](#カンナ-すぺしゃるメッセージ)
+- [スーパーちょろゴンずのなまほうそう！](#スーパーちょろゴンずのなまほうそう)
+- [カンナとおひるね](#カンナとおひるね)
+- [マジやばくね](#マジやばくね)
+- [全国の小林さんへ届け](#全国の小林さんへ届け)
+- [10分でわかる！ 『小林さんちのメイドラゴン』 すぺしゃる映像](#10分でわかる-小林さんちのメイドラゴン-すぺしゃる映像)
+- [キャストみんなで 「涙のパレード」 ダンス動画](#キャストみんなで-涙のパレード-ダンス動画)
+- [バトルシーンメイキング映像](#バトルシーンメイキング映像)
+- [アーザード特別映像](#アーザード特別映像)
+- [小林幸子さん コメント](#小林幸子さん-コメント)
+- [MX4D体験してみた](#mx4d体験してみた)
+- [スタッフトーク付き上映会 ポスト](#スタッフトーク付き上映会-ポスト)
+
+## 映画 ノンテロップオープニング
 
 かなり早い段階で公開された
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/WXEEdxdxQ1g?si=8OHhrnEwD_YArCpe" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 映画 本編冒頭10分
+## 映画 本編冒頭10分
 
 上のOPを含めた映画本編の10分を公開  
 カンナたちが電話ボックスで遊ぶシーンまで  
@@ -27,7 +43,7 @@ read: read
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/DgEgW0ILsDk?si=rSoD3tSP9RDhyPxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 『ぼくたちの日々』 カンナ Ver. すぺしゃる映像
+## 『ぼくたちの日々』 カンナ Ver. すぺしゃる映像
 
 エンディング主題歌の『ぼくたちの日々』のカンナバージョンに、アニメ・映画の映像を合わせたすぺしゃる映像  
 
@@ -35,7 +51,7 @@ read: read
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/CCy_sCVbXa0?si=GsKCcq40l6olBrDk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 映画公開 特別番組
+## 映画公開 特別番組
 
 地上波で公開された特別番組
 
@@ -43,19 +59,19 @@ read: read
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/hW27cz-gA7k?si=Tj_3qjWh04lq5kME" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 映画ポスター
+## 映画ポスター
 
 [マジやばくねカウンター](https://maidragon.jp/movie/counter/)の1500万達成のプレゼントとして公開されたポスター
 
 大ヒット御礼！として、各キャラ個別でダウンロードできるように公開された（[リンク](https://maidragon.jp/news/archives/2174)）
 
-### カンナ すぺしゃるメッセージ
+## カンナ すぺしゃるメッセージ
 
 同じくマジやばくねカウンターの2000万達成のプレゼントとして公開された映像
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/5a7HAyl7HAU?si=VlAqS41e-T5clBEH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### スーパーちょろゴンずのなまほうそう！
+## スーパーちょろゴンずのなまほうそう！
 
 同じくマジやばくねカウンターの2500万達成のプレゼントとして行われた生放送  
 こちらはぽにきゃんのYouTubeチャンネルで公開  
@@ -64,32 +80,32 @@ read: read
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/biomWewzOtU?si=6ZLCcXSTz-H9scX2&amp;start=860" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### カンナとおひるね
+## カンナとおひるね
 
 カンナが寝ている映像が**3時間**もループされている！
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/cmAdm1-u4ec?si=7k4L2mEHlFhbB-HR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### マジやばくね
+## マジやばくね
 
 こちらもアニメ内に登場する『マジやばくね』を切り取って**1時間**ループしたもの
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/yFU1Mo6-6GY?si=J8CvSN-Hk0JBEEtD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 全国の小林さんへ届け
+## 全国の小林さんへ届け
 
 こちらもアニメ内に登場する『小林』or『小林さん』を切り取って**3時間**ループしたもの  
 狂ってやがるぜ……
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/6NlKVz0pivg?si=MgsjN5iIAsIyyIDa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 10分でわかる！ 『小林さんちのメイドラゴン』 すぺしゃる映像
+## 10分でわかる！ 『小林さんちのメイドラゴン』 すぺしゃる映像
 
 これを少し観てハマった！
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lyV2ir7Crqs?si=DZRrq9zyK0STpiFe" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### キャストみんなで 「涙のパレード」 ダンス動画
+## キャストみんなで 「涙のパレード」 ダンス動画
 
 出演：fhána、小林幸子、長縄まりあ、田村睦心、桑原由気、高田憂希、髙橋ミナミ、杉浦しおり
 
@@ -102,21 +118,27 @@ fhánaリーダーの佐藤さんのインタビュー動画
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ySx_0RpQE08?si=VQLeaF0hzZYtwYt6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### アーザード特別映像
+## バトルシーンメイキング映像
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FUGC_NzSGJE?si=bcFiIqweLhP7IWwC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+## アーザード特別映像
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wJS5srtefyo?si=EDWqY2bF44yg5eRe" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 小林幸子さん コメント
+## 小林幸子さん コメント
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/9ij_rJ2HgGA?si=VTGT6tVSg6BwXu3C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FXDgDafqKOM?si=V5XM2kf8HuZmQGx5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### MX4D体験してみた
+## MX4D体験してみた
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">▶▶▶ MX4D体験してみた◀◀◀<br><br>スタッフが一足早くMX4Dを体験🐉💥<br>⚠️顔はキムンカムイですが、とても楽しんでいます<br><br>4DX／MX4Dも6月27日（金）同時公開🎥<br><br>全身で「メイドラゴン」を体感してください🐉🙌<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 6月27日(金)公開！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/udkK6SlZGs">pic.twitter.com/udkK6SlZGs</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1937809330822316430?ref_src=twsrc%5Etfw">June 25, 2025</a></blockquote>
 
-### スタッフトーク付き上映会 ポスト
+## スタッフトーク付き上映会 ポスト
+
+- [スタッフトーク付上映第1弾レポート](https://maidragon.jp/movie/special/20250724_butaiaisatsu/)
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　7月24日(木)19:00～<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/MT59fEWEQt">https://t.co/MT59fEWEQt</a><br><br>＼門脇未来さん・キャラデザのおしごとを語る／<br>✅<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 用にキャラデザを調整？<br>✅私服設定ココだけのお話！… <a href="https://t.co/XdAvyqCghe">pic.twitter.com/XdAvyqCghe</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947582388088758477?ref_src=twsrc%5Etfw">July 22, 2025</a></blockquote>
 
