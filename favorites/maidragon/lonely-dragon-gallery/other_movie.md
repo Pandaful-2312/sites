@@ -27,6 +27,7 @@ read: read
 - [小林幸子さん コメント](#小林幸子さん-コメント)
 - [MX4D体験してみた](#mx4d体験してみた)
 - [スタッフトーク付き上映会 ポスト](#スタッフトーク付き上映会-ポスト)
+- [おうちで充電中](#おうちで充電中)
 
 ## 映画 ノンテロップオープニング
 
@@ -153,3 +154,7 @@ fhánaリーダーの佐藤さんのインタビュー動画
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◥◣アニメ制作スタッフトーク付き上映第2⃣弾◢◤ <br>📍8月7日（木）19時の回／上映前<br>📍 MOVIX京都<br><br>京都アニメーションのメインスタッフ再び集結🖊🐉<br>第2弾は、演出や撮影処理・３DCGなど<br>より制作の核心や最新技術に迫るスタッフが登壇✨<br><br>📍石原立也（監督）<br>　北之原孝將(演出)… <a href="https://t.co/ximZHW15kN">pic.twitter.com/ximZHW15kN</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1948329815763018161?ref_src=twsrc%5Etfw">July 24, 2025</a></blockquote>
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◥◣アニメ制作スタッフトーク付き上映第2⃣弾◢◤ <br>📍8月7日（木）19時の回／上映前<br>📍 MOVIX京都　販売中🎫<a href="https://t.co/MT59fEXcG1">https://t.co/MT59fEXcG1</a><br><br>来週は、演出や撮影処理・３DCGなど<br>より制作の核心や最新技術に迫る京アニスタッフが登壇✨<br>クリエイターを目指す皆さんも必見👀… <a href="https://t.co/dy2KDrLC3f">pic.twitter.com/dy2KDrLC3f</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1950889195263996233?ref_src=twsrc%5Etfw">July 31, 2025</a></blockquote>
+
+## おうちで充電中
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">━━━━━━━━━━━━━━<br>⋱夏休みは <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a>⋰<a href="https://twitter.com/hashtag/%E3%82%AB%E3%83%B3%E3%83%8A%E3%81%A8%E3%81%84%E3%81%A3%E3%81%97%E3%82%87?src=hash&amp;ref_src=twsrc%5Etfw">#カンナといっしょ</a> に夏休み⛱<br>━━━━━━━━━━━━━━<br>『カンナがおうちで充電中』<br>の透過素材を作ってみました🐉<br>自由に使って夏休みをカンナと過ごそう！<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/GdO4wOjgYM">pic.twitter.com/GdO4wOjgYM</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1951478071908790273?ref_src=twsrc%5Etfw">August 2, 2025</a></blockquote>
