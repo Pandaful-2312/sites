@@ -147,4 +147,12 @@ read: read
 
 ## 中国・四国
 
+### 鳥取
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━╮<br>　すな～<br>╰━ｖ━╯<br><br>カンナと全国かくれんぼ<br>🐉鳥取🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/A3FeIaNQ7M">pic.twitter.com/A3FeIaNQ7M</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1952278336157176310?ref_src=twsrc%5Etfw">August 4, 2025</a></blockquote>
+
+### 岡山
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━━╮<br>　きびだんごちょーだい<br>╰━ｖ━━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉岡山🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/g1ijhuZ6JN">pic.twitter.com/g1ijhuZ6JN</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1952278582769910088?ref_src=twsrc%5Etfw">August 4, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## 九州・沖縄
