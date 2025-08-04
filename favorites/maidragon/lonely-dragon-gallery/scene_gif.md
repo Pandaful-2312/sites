@@ -134,6 +134,10 @@ read: read
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/7d5noWTp5u">https://t.co/7d5noWTp5u</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/bXQr7y1e8t">pic.twitter.com/bXQr7y1e8t</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1951795154647499052?ref_src=twsrc%5Etfw">August 3, 2025</a></blockquote>
 
+### またまたダメ親父！
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/7d5noWTWV2">https://t.co/7d5noWTWV2</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/qCy1uwQ21c">pic.twitter.com/qCy1uwQ21c</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1952157534846108127?ref_src=twsrc%5Etfw">August 4, 2025</a></blockquote>
+
 ## 番外編
 
 ### オタ芸 滝谷・ファフッさん
