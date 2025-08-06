@@ -318,6 +318,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「グレーテちゃんの合流シーンですね！」<br>モニカ　「革命１日目は、グレーテがいなければ乗り越えられなかったよ」<br>サラ　　「さすがグレーテ先輩っす！　大活躍っすね！」<br><br>三人　　「「「ま、自分たちはその場にいないんですけど！！」」」<br><br>ジビア　「黙ってろ、獄中トリオ」<br>ティア… <a href="https://t.co/zLk0GyQpPj">https://t.co/zLk0GyQpPj</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1950532750378992068?ref_src=twsrc%5Etfw">July 30, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+### 分身の術
+
+サラッとグレートの秘武器公開！？なの〜
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「分身の術なの！」<br>スージー「ドッペルゲンガーの魔法とも言えるわ！」<br>モニカ　「中央収容所の襲撃時かな？」<br>グレーテ「革命の中心であるエルナさんを増やし、敵を欺くシーンですね」<br>リリィ　「これは完璧な変装ですね」<br>ティア　「えぇ、片方はグレーテの変装――」<br>ジビア… <a href="https://t.co/N8GpeIHqwr">https://t.co/N8GpeIHqwr</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1952721001009058277?ref_src=twsrc%5Etfw">August 5, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
