@@ -43,7 +43,7 @@ read: read
 
 ### 小林さん
 
-イケメンな横顔！
+左下のイケメンな横顔！
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと5日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日は小林さんのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/G6LTIJR8EM">pic.twitter.com/G6LTIJR8EM</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1952641222599643279?ref_src=twsrc%5Etfw">August 5, 2025</a></blockquote>
 
@@ -52,6 +52,12 @@ read: read
 上目遣いトールかわいい
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと4日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はトールのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/WMQKl3sTcA">pic.twitter.com/WMQKl3sTcA</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953003610536628371?ref_src=twsrc%5Etfw">August 6, 2025</a></blockquote>
+
+### イルル
+
+左上の雀眺めているのが野性味があっていい！（食べないよな……？）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと3日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はイルルのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96Bxf1">https://t.co/4tQC96Bxf1</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/daSKligfsk">pic.twitter.com/daSKligfsk</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953365998654111998?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
 
 ## スタッフトーク付き上映会 ポスト
 
@@ -80,3 +86,7 @@ read: read
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　　8月7日(木)19:00～<br>スタッフトーク付上映 第2⃣弾❣<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/6obWggWlM5">https://t.co/6obWggWlM5</a><br><br>演出の北之原孝將さんはバトルシーンも多く手掛けたアニメーター！<br>バトルシーンの資料も初公開❣<br>作画の秘訣も聞けちゃうかも！？… <a href="https://t.co/H09Z9RQZXF">pic.twitter.com/H09Z9RQZXF</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953018208828412362?ref_src=twsrc%5Etfw">August 6, 2025</a></blockquote>
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　　8月7日(木)19:00～<br>スタッフトーク付上映 第2⃣弾❣<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/6obWggWTBD">https://t.co/6obWggWTBD</a><br><br>3D監督の山本倫さんからは次元ゲートなどの資料を頂きました❣<br>3Dの最新技術の話も聞けちゃうかも！？<br>どうぞお見逃しなく！… <a href="https://t.co/pmE2aA3I9p">pic.twitter.com/pmE2aA3I9p</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953048410447331802?ref_src=twsrc%5Etfw">August 6, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　　本日19:00～より<br>スタッフトーク付上映 第2⃣弾❣<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/6obWggWTBD">https://t.co/6obWggWTBD</a><br><br>第1⃣弾ではキャラクターの魅力や世界観、<br>色彩など様々なこだわりをご紹介しました❣<br>第2⃣弾開催の前にこちらも要チェック🐉… <a href="https://t.co/jmxYePGz7s">pic.twitter.com/jmxYePGz7s</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953289999404941681?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br>スタッフトーク付上映 第2⃣弾❣<br>ご来場ありがとうございました✨<br>❖━━━━━━━━━━━━━❖<br><br>監督、演出、撮影監督、3D監督からメイドラゴン制作秘話を資料と共に披露させて頂きました🎬… <a href="https://t.co/XHGogkgB7Y">pic.twitter.com/XHGogkgB7Y</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953408832270709146?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
