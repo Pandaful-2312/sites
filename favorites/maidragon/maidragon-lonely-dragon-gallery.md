@@ -33,3 +33,6 @@ tag: maidragon
 
 - [その他 映像](./lonely-dragon-gallery/other_movie)  
     OPやEDなどのその他公開されている映像（YouTube）
+
+- [その他 ポスト](./lonely-dragon-gallery/other_post)  
+    アイコン・透過素材などのその他公開されているコンテンツ（公式X）
