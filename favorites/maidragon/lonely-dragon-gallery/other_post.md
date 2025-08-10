@@ -14,6 +14,7 @@ read: read
 - [〇〇といっしょに夏休み](#〇〇といっしょに夏休み)
 - [アイコン配布](#アイコン配布)
 - [スタッフトーク付き上映会 ポスト](#スタッフトーク付き上映会-ポスト)
+- [大ヒット御礼舞台挨拶 ポスト](#大ヒット御礼舞台挨拶-ポスト)
 
 ## MX4D体験してみた
 
@@ -29,7 +30,7 @@ read: read
 
 ### 小林さんと一緒に乾杯
 
-<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">━━━━━━━━━━━━━━<br>⋱夏休みは <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a>⋰<a href="https://twitter.com/hashtag/%E5%B0%8F%E6%9E%97%E3%81%95%E3%82%93%E3%81%A8%E3%81%84%E3%81%A3%E3%81%97%E3%82%87?src=hash&amp;ref_src=twsrc%5Etfw">#小林さんといっしょ</a> に夏休み⛱<br>━━━━━━━━━━━━━━<br><br>『小林さんと一緒に乾杯』<br>の透過素材を作ってみました🐉<br>自由に使って夏休みを小林さんと過ごそう！<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/Cl6NqWI9Rv">pic.twitter.com/Cl6NqWI9Rv</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1951840447279849499?ref_src=twsrc%5Etfw">August 3, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">━━━━━━━━━━━━━━<br>⋱夏休みは <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a>⋰<a href="https://twitter.com/hashtag/%E5%B0%8F%E6%9E%97%E3%81%95%E3%82%93%E3%81%A8%E3%81%84%E3%81%A3%E3%81%97%E3%82%87?src=hash&amp;ref_src=twsrc%5Etfw">#小林さんといっしょ</a> に夏休み⛱<br>━━━━━━━━━━━━━━<br><br>『小林さんと一緒に乾杯』<br>の透過素材を作ってみました🐉<br>自由に使って夏休みを小林さんと過ごそう！<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/Cl6NqWI9Rv">pic.twitter.com/Cl6NqWI9Rv</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1951840447279849499?ref_src=twsrc%5Etfw">August 3, 2025</a></blockquote>
 
 ## アイコン配布
 
@@ -37,7 +38,7 @@ read: read
 
 ### カンナ
 
-プイッとしてるカンナがかわいい！
+左上のプイッとしてるカンナがかわいい！
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと6日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はカンナのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/2wMXsKdZBf">pic.twitter.com/2wMXsKdZBf</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1952293934329123023?ref_src=twsrc%5Etfw">August 4, 2025</a></blockquote>
 
@@ -49,7 +50,7 @@ read: read
 
 ### トール
 
-上目遣いトールかわいい
+右下の上目遣いトールかわいい！
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと4日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はトールのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/WMQKl3sTcA">pic.twitter.com/WMQKl3sTcA</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953003610536628371?ref_src=twsrc%5Etfw">August 6, 2025</a></blockquote>
 
@@ -58,6 +59,22 @@ read: read
 左上の雀眺めているのが野性味があっていい！（食べないよな……？）
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと3日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はイルルのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96Bxf1">https://t.co/4tQC96Bxf1</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/daSKligfsk">pic.twitter.com/daSKligfsk</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953365998654111998?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
+
+### エルマ・ルコア
+
+右側の団子ヘアピンが可愛いエルマ・イケメンなルコア 良い！！
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと2日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はエルマとルコアのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/Q20dqNrWbX">pic.twitter.com/Q20dqNrWbX</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953728637875695810?ref_src=twsrc%5Etfw">August 8, 2025</a></blockquote>
+
+### ファフニール・滝谷
+
+この2人も配布してくれるの！？
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉8月10日LVまであと1日🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はファフニールと滝谷のアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/w6GFmIMIt5">pic.twitter.com/w6GFmIMIt5</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954091026806710449?ref_src=twsrc%5Etfw">August 9, 2025</a></blockquote>
+
+### アーザード・キムンカムイ
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉本日LV開催🎊◢<br>8月10日LV記念アイコン配布！<br><br>本日はアーザードとキムンカムイのアイコンをプレゼント🐉<br>ぜひアイコンにしてくださいね✨<a href="https://t.co/4tQC96AZpt">https://t.co/4tQC96AZpt</a><br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/PtJYQjnmdi">pic.twitter.com/PtJYQjnmdi</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954332114414891218?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
 
 ## スタッフトーク付き上映会 ポスト
 
@@ -90,3 +107,21 @@ read: read
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　　本日19:00～より<br>スタッフトーク付上映 第2⃣弾❣<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/6obWggWTBD">https://t.co/6obWggWTBD</a><br><br>第1⃣弾ではキャラクターの魅力や世界観、<br>色彩など様々なこだわりをご紹介しました❣<br>第2⃣弾開催の前にこちらも要チェック🐉… <a href="https://t.co/jmxYePGz7s">pic.twitter.com/jmxYePGz7s</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953289999404941681?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br>スタッフトーク付上映 第2⃣弾❣<br>ご来場ありがとうございました✨<br>❖━━━━━━━━━━━━━❖<br><br>監督、演出、撮影監督、3D監督からメイドラゴン制作秘話を資料と共に披露させて頂きました🎬… <a href="https://t.co/XHGogkgB7Y">pic.twitter.com/XHGogkgB7Y</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953408832270709146?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
+
+## 大ヒット御礼舞台挨拶 ポスト
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉本日大ヒット御礼舞台挨拶LV開催🎊◢<br><br>🎥本会場【新宿ピカデリー】<br>本日12:15の回（上映前舞台挨拶）<br>お席残りわずかですが、まだございます👍<a href="https://t.co/SeaNOgRKkX">https://t.co/SeaNOgRKkX</a><br><br>🍿LV会場はこちら！<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>※12:15の回はLVはございません。<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣… <a href="https://t.co/r4P06TIyJY">pic.twitter.com/r4P06TIyJY</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954346971566866907?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼質問ありがとうございます／<br>石原監督のお絵かきつき抽選箱にて、質問にお答えします！<br><br>🍿LV会場 11:00の回はこちら<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎥本会場【新宿ピカデリー】12:15の回<br>お席残りわずか！🎫<a href="https://t.co/SeaNOgRcvp">https://t.co/SeaNOgRcvp</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/Nv80koyxdE">https://t.co/Nv80koyxdE</a> <a href="https://t.co/XbGcqhidha">pic.twitter.com/XbGcqhidha</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954354511486538052?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">◤🎉本日大ヒット御礼舞台挨拶LV開催🎊◢<br><br>🎥本会場【新宿ピカデリー】<br>本日12:15の回（上映前舞台挨拶）<br>お席残りわずか！🎫<a href="https://t.co/SeaNOgRcvp">https://t.co/SeaNOgRcvp</a><br><br>※12:15の回はLVはございません。<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット上映中❣<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/xwwpoVPRYJ">pic.twitter.com/xwwpoVPRYJ</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954362061372137692?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">✩˖°⌖.꙳✩˖°⌖.꙳✩˖°⌖.꙳✩˖°⌖.꙳✩<br> 🎂HAPPY BIRTHDAY🎂<br>✩˖°⌖.꙳✩˖°⌖.꙳✩˖°⌖.꙳✩˖°⌖.꙳✩<br><br>先日8月5日は <a href="https://twitter.com/hashtag/%E3%82%AB%E3%83%B3%E3%83%8A?src=hash&amp;ref_src=twsrc%5Etfw">#カンナ</a> 役<br>長縄さんのお誕生日🎉🐉🩰<br><br>舞台挨拶後に<br>みんなでお祝いしました🥂🎂<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 6月27日(金)公開！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/0g8ouPjmye">pic.twitter.com/0g8ouPjmye</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954404340526981146?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">*◇*◆*◇*◆*◇*◆*◇*◆*◇*◆* ◇*<br> 🐉🎊大ヒット御礼舞台挨拶🎊🐉<br>　　　　@ 新宿ピカデリー<br>*◇*◆*◇*◆*◇*◆*◇*◆*◇*◆* ◇*<br><br>大ヒット御礼舞台挨拶<br>＆ライブビューイング<br>をご覧いただいた皆様<br>ありがとうございました✨<br><br>本作の舞台挨拶初登壇の<br>アーザード役 <a href="https://twitter.com/hashtag/%E5%B3%B6%EF%A8%91%E4%BF%A1%E9%95%B7%E3%81%95%E3%82%93?src=hash&amp;ref_src=twsrc%5Etfw">#島﨑信長さん</a>… <a href="https://t.co/9OOzULB4M1">pic.twitter.com/9OOzULB4M1</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954402238048432362?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">『 <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 』<br><br>舞台挨拶、そしてライブビューイングでご覧頂いた皆様もありがとうございました！立木さん、島﨑さんのお話もたくさん聞くことが出来て嬉しかったです！🐉✨… <a href="https://t.co/43NapgZDfG">https://t.co/43NapgZDfG</a></p>&mdash; 桑原由気（くわはらゆうき） (@yuuki_0624) <a href="https://twitter.com/yuuki_0624/status/1954429374259953768?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr"><a href="https://twitter.com/hashtag/%E5%B3%B6%EF%A8%91%E4%BF%A1%E9%95%B7?src=hash&amp;ref_src=twsrc%5Etfw">#島﨑信長</a><br><br>【映画『小林さんちのメイドラゴン　さみしがりやの竜』大ヒット御礼舞台挨拶＆ライブビューイング】<br>〈8月10日（日）開催@新宿ピカデリー〉<br><br>映画『小林さんちのメイドラゴン』<br>アーザード役島﨑信長が登壇させて<br>頂きました。<br><br>ご来場ありがとうございました！！！<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a>… <a href="https://t.co/UpfdKGeLPF">pic.twitter.com/UpfdKGeLPF</a></p>&mdash; 青二プロダクション【公式】 (@aoni_official) <a href="https://twitter.com/aoni_official/status/1954416754622660727?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">濃ゆいお話しもきけて大爆笑して<br>充実した楽しい舞台挨拶でした☺️✨<br>来てくださった方々、ライブビューイングで観てくださった方々、ありがとうございました！！<br>ぜひとも何度でも劇場に足をお運びください！映画館という特別な空間で観られる機会を余すことなく楽しんでくださいね✨ <a href="https://t.co/fozhKOJNX7">https://t.co/fozhKOJNX7</a></p>&mdash; 田村睦心 (@623tmr) <a href="https://twitter.com/623tmr/status/1954416333367414847?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>

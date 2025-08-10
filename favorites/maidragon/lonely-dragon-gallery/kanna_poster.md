@@ -179,4 +179,40 @@ read: read
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━━━━━╮<br>　全部タタくとおいしくなる？<br>╰━ｖ━━━━━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉高知🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/JKYzyOlwFm">pic.twitter.com/JKYzyOlwFm</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953365748530757947?ref_src=twsrc%5Etfw">August 7, 2025</a></blockquote>
 
+### 愛媛
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━╮<br>　タオルふわふわ～<br>╰━ｖ━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉愛媛🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/XaMIR95mK9">pic.twitter.com/XaMIR95mK9</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953727891885457725?ref_src=twsrc%5Etfw">August 8, 2025</a></blockquote>
+
 ## 九州・沖縄
+
+### 福岡
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━━━╮<br>　ラーメンっラーメンっ！<br>╰━ｖ━━━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉福岡🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/KCuQptZDef">pic.twitter.com/KCuQptZDef</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953728134466896361?ref_src=twsrc%5Etfw">August 8, 2025</a></blockquote>
+
+### 大分
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━╮<br>　温泉だいすき<br>╰━ｖ━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉大分🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/7WipJxZVBB">pic.twitter.com/7WipJxZVBB</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953728386095792370?ref_src=twsrc%5Etfw">August 8, 2025</a></blockquote>
+
+### 宮崎
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━╮<br>　マンゴーうまー<br>╰━ｖ━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉宮崎🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/DJa1TOi8F3">pic.twitter.com/DJa1TOi8F3</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954090273036022235?ref_src=twsrc%5Etfw">August 9, 2025</a></blockquote>
+
+### 佐賀
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━━╮<br>　なんかいろいろあった<br>╰━ｖ━━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉佐賀🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/nFzLTULW7I">pic.twitter.com/nFzLTULW7I</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954090522420900237?ref_src=twsrc%5Etfw">August 9, 2025</a></blockquote>
+
+### 熊本
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━╮<br>　クマ、いなかった…<br>╰━ｖ━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉熊本🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/oWXopA46Ob">pic.twitter.com/oWXopA46Ob</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954090774049509430?ref_src=twsrc%5Etfw">August 9, 2025</a></blockquote>
+
+### 鹿児島
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━╮<br>　木がおっきかった！<br>╰━ｖ━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉鹿児島🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/bRwt1aaHWj">pic.twitter.com/bRwt1aaHWj</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954452658107842909?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+### 長崎
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━━╮<br>　なんかギザギザだった<br>╰━ｖ━━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉長崎🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/wwNA0cC3Ww">pic.twitter.com/wwNA0cC3Ww</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954452910252741092?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+### 沖縄
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">╭━━━━━━━━━╮<br>　うたっておどった！<br>╰━ｖ━━━━━━━╯<br><br>カンナと全国かくれんぼ<br>🐉沖縄🐉<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 大ヒット公開中！<a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/7kpwUMTgJ0">pic.twitter.com/7kpwUMTgJ0</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1954453161885958412?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>

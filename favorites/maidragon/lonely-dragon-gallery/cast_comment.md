@@ -16,7 +16,60 @@ read: read
 
 <iframe width="184" height="327" src="https://www.youtube.com/embed/DjKG7KHmP5M" title="小林さん役・ #田村睦心 さんコメント🐉🍺映画『小林さんちのメイドラゴン さみしがりやの竜』 #映画メイドラゴン #DragonMaid #京アニ新作" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> <iframe width="184" height="327" src="https://www.youtube.com/embed/rshhaWmEyH0" title="トール役・ #桑原由気 さんコメント🐉✨映画『小林さんちのメイドラゴン さみしがりやの竜』 #映画メイドラゴン #DragonMaid #京アニ新作" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> <iframe width="184" height="327" src="https://www.youtube.com/embed/Hkj8F3KF8Z8" title="カンナ役・ #長縄まりあ さんコメント🐉✨映画『小林さんちのメイドラゴン さみしがりやの竜』 #映画メイドラゴン #DragonMaid #京アニ新作" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+## 公開前（カウントダウン）
+
+### 11： アーザード（島崎信長）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと11日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンが開始！<br>最初はアーザード役：島﨑信長さんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvGi7p">https://t.co/3927lvGi7p</a><br><br>🍿劇場情報… <a href="https://t.co/azFANuSJeZ">pic.twitter.com/azFANuSJeZ</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1934551527454384313?ref_src=twsrc%5Etfw">June 16, 2025</a></blockquote>
+
+### 10: キムンカムイ（立木文彦）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと10日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日はキムンカムイ役：立木文彦さんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvGi7p">https://t.co/3927lvGi7p</a>… <a href="https://t.co/mbWYtpKc5u">pic.twitter.com/mbWYtpKc5u</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1934920251927613676?ref_src=twsrc%5Etfw">June 17, 2025</a></blockquote>
+
+### 9: 翔太（石原夏織）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと9日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日は真ヶ土翔太役：石原夏織さんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvFKhR">https://t.co/3927lvFKhR</a> <br>🍿劇場情報… <a href="https://t.co/EofrDQnxB1">pic.twitter.com/EofrDQnxB1</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1935276309225017568?ref_src=twsrc%5Etfw">June 18, 2025</a></blockquote>
+
+### 8: 才川（加藤英美里）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと8日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日は才川リコ役：加藤英美里さんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvGi7p">https://t.co/3927lvGi7p</a> <br>🍿劇場情報… <a href="https://t.co/WmTjPC0Gti">pic.twitter.com/WmTjPC0Gti</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1935638690648498560?ref_src=twsrc%5Etfw">June 19, 2025</a></blockquote>
+
+### 7: 滝谷（中村悠一）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと7日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日は滝谷真役：中村悠一さんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvFKhR">https://t.co/3927lvFKhR</a> <br>🍿劇場情報… <a href="https://t.co/jYyi6GGSjX">pic.twitter.com/jYyi6GGSjX</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1936001087598670015?ref_src=twsrc%5Etfw">June 20, 2025</a></blockquote>
+
+### 6: ファフニール（小野大輔）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと6日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日はファフニール役：小野大輔さんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvGi7p">https://t.co/3927lvGi7p</a>… <a href="https://t.co/KsxIwwbpDe">pic.twitter.com/KsxIwwbpDe</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1936363471253455244?ref_src=twsrc%5Etfw">June 21, 2025</a></blockquote>
+
+### 5: イルル（杉浦しおり）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと5日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日はイルル役：杉浦しおりさんからコメントが到着✨️<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvFKhR">https://t.co/3927lvFKhR</a> <br>🍿劇場情報… <a href="https://t.co/cklUoc80Ce">pic.twitter.com/cklUoc80Ce</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1936718304355234082?ref_src=twsrc%5Etfw">June 22, 2025</a></blockquote>
+
+### 3: ルコア（髙橋ミナミ）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと3日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日はルコア役：髙橋ミナミさんからコメントが到着✨<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvGi7p">https://t.co/3927lvGi7p</a> <br>🍿劇場情報… <a href="https://t.co/t7OoJhBpcy">pic.twitter.com/t7OoJhBpcy</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1937450375927480575?ref_src=twsrc%5Etfw">June 24, 2025</a></blockquote>
+
+### 3: エルマ（高田憂希）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと3日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日はエルマ役：高田憂希さんからのコメントも到着✨<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvGi7p">https://t.co/3927lvGi7p</a> <br>🍿劇場情報… <a href="https://t.co/nk144mS3ig">pic.twitter.com/nk144mS3ig</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1937450879743066614?ref_src=twsrc%5Etfw">June 24, 2025</a></blockquote>
+
+### 2: トール（桑原由気）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと2日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日はトール役：桑原由気さんからコメントが到着✨<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvFKhR">https://t.co/3927lvFKhR</a> <br>🍿劇場情報… <a href="https://t.co/TrNz3DswV1">pic.twitter.com/TrNz3DswV1</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1937813029044850907?ref_src=twsrc%5Etfw">June 25, 2025</a></blockquote>
+
+### 1: 小林（田村睦心）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼ <a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 公開まであと1日🐉 ／<br><br>6/27(金)の公開に向けて、カウントダウンを実施中！<br>本日は小林さん役：田村睦心さんからコメントが到着✨<br><br>ムビチケ発売中🎫<br>前売特典は、スーパーちょろゴンず<br>ミニキャラクリアファイル（A4）全5種ランダム🐉<a href="https://t.co/3927lvFKhR">https://t.co/3927lvFKhR</a> <br>🍿劇場情報… <a href="https://t.co/vDO97AUh7x">pic.twitter.com/vDO97AUh7x</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1938160320297447776?ref_src=twsrc%5Etfw">June 26, 2025</a></blockquote>
+
+### 0: カンナ（長縄まりあ）
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 本日公開🐉 ／<br><br>カウントダウンコメントのラストを飾る<br>カンナ役：長縄まりあさんからコメントが到着✨<br><br>感動の家族の物語を劇場でお見逃しなく❣<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/YbwytcmMGa">pic.twitter.com/YbwytcmMGa</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1938417498808078567?ref_src=twsrc%5Etfw">June 27, 2025</a></blockquote>
+
 ## 舞台挨拶後
+
+YouTube・公式Xで公開された舞台挨拶後のキャストコメント  
+主に関連ある2人ペアとなっている
 
 ### ショート（カンナ＆トール）
 
@@ -69,3 +122,7 @@ read: read
 ### 小林＆エルマ
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lJ1XKpwcYoA?si=UxooubzoZhP1tiqr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+## その他の公式Xコメント
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">⋱今週末舞台挨拶＆ライブビューイング⋰<br> <a href="https://twitter.com/hashtag/%E5%B3%B6%EF%A8%91%E4%BF%A1%E9%95%B7?src=hash&amp;ref_src=twsrc%5Etfw">#島﨑信長</a> さんからコメント到着🔮<br>￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣<br>12:15の回の現地チケットは残りわずか！<br>ぜひお越しください🐉🙌<a href="https://t.co/O0TVPJHHG5">https://t.co/O0TVPJHHG5</a><br><br>ライブビューイング会場はこちら🎬<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a>… <a href="https://t.co/4E3C5m9chs">pic.twitter.com/4E3C5m9chs</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953735434778845327?ref_src=twsrc%5Etfw">August 8, 2025</a></blockquote>
