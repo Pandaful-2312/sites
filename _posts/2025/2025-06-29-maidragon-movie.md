@@ -3,7 +3,7 @@ layout: post
 title: 映画 小林さんちのメイドラゴン さみしがりやの竜
 category: movie
 date: 2025-06-28
-update: 2025-08-04
+update: 2025-08-11
 tag: maidragon
 ---
 
