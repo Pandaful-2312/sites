@@ -324,6 +324,14 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「分身の術なの！」<br>スージー「ドッペルゲンガーの魔法とも言えるわ！」<br>モニカ　「中央収容所の襲撃時かな？」<br>グレーテ「革命の中心であるエルナさんを増やし、敵を欺くシーンですね」<br>リリィ　「これは完璧な変装ですね」<br>ティア　「えぇ、片方はグレーテの変装――」<br>ジビア… <a href="https://t.co/N8GpeIHqwr">https://t.co/N8GpeIHqwr</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1952721001009058277?ref_src=twsrc%5Etfw">August 5, 2025</a></blockquote>
 
+### 脱獄劇
+
+### 悲劇のヒロイン
+
+日頃の仕返しで煽り返すモニカいい
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　（…………？）<br>サラ　　（…………？）<br>リリィ　（…………？）<br>グレーテ「……？　振り返るシーンが１個、飛んでいませんか？」<br>アネット「ですねっ。次に振り返るのは、リリィの姉貴たちの脱獄シーンですっ」<br>エルナ　「カッコいいシーンが飛んでいるの！」<br>ティア… <a href="https://t.co/xAVgGKlS8a">https://t.co/xAVgGKlS8a</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1955235370557477312?ref_src=twsrc%5Etfw">August 12, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
