@@ -12,11 +12,14 @@ read: read
 
 - [カンナくるくる](#ｻｲｶﾜｰカンナ)
 - [飛び跳ねカンナ](#ピョンピョンカンナ)
-- [走るカンナ](#おとーさん)
 - [一口エルマ](#丸呑みエルマ)
 - [狂気才川](#ブンブン才川)
 - [テレポートール](#ぶっ飛ばしトール)
 - [イケメンファフっさん](#戦闘ファフニール)
+- [いやいやエルマ](#イヤイヤエルマ)
+- [悲劇のアーザード](#悲劇のアーザード)
+- [上目遣いトール](#上目遣いトール)
+- [寂しかった……](#寂しかったカンナ)
 
 ## 駄々こねカンナ
 
@@ -54,7 +57,7 @@ read: read
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgETUa">https://t.co/HO94WgETUa</a><br><br>🎁入場者プレゼント<a href="https://t.co/cMwZuEPdCq">https://t.co/cMwZuEPdCq</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/1VnM5QHA2h">pic.twitter.com/1VnM5QHA2h</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1943822614126113197?ref_src=twsrc%5Etfw">July 12, 2025</a></blockquote>
 
-## おとーさん……！
+## 走るカンナ
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/cMwZuEOFMS">https://t.co/cMwZuEOFMS</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/E8z1jq1zeo">pic.twitter.com/E8z1jq1zeo</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1944185003904000066?ref_src=twsrc%5Etfw">July 13, 2025</a></blockquote>
 
@@ -169,6 +172,10 @@ read: read
 ## 上目遣いトール
 
 <blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/QPRsZwgDSt">https://t.co/QPRsZwgDSt</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/yb3ALnZHiZ">pic.twitter.com/yb3ALnZHiZ</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1955419028689694838?ref_src=twsrc%5Etfw">August 13, 2025</a></blockquote>
+
+## 寂しかったカンナ
+
+<blockquote class="twitter-tweet" data-media-max-width="560"><p lang="ja" dir="ltr">◇━━━━━━━━━━━━━◇<br>　　　　　　映画<br>　『小林さんちのメイドラゴン<br>　　　さみしがりやの竜』<br>　　🐉大ヒット上映中🐉<br>◇━━━━━━━━━━━━━◇<br><br>🍿劇場情報<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a><br><br>🎁入場者プレゼント<a href="https://t.co/QPRsZwgDSt">https://t.co/QPRsZwgDSt</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/GRMWx32nvV">pic.twitter.com/GRMWx32nvV</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1955781421336866851?ref_src=twsrc%5Etfw">August 14, 2025</a></blockquote>
 
 ## 番外編
 
