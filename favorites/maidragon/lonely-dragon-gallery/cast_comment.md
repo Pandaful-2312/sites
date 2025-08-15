@@ -123,6 +123,10 @@ YouTube・公式Xで公開された舞台挨拶後のキャストコメント
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lJ1XKpwcYoA?si=UxooubzoZhP1tiqr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+### キムンカムイ＆アーザード
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/11QtosnjuG8?si=OSfaJgY0ko7O076U" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 ## その他の公式Xコメント
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">⋱今週末舞台挨拶＆ライブビューイング⋰<br> <a href="https://twitter.com/hashtag/%E5%B3%B6%EF%A8%91%E4%BF%A1%E9%95%B7?src=hash&amp;ref_src=twsrc%5Etfw">#島﨑信長</a> さんからコメント到着🔮<br>￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣<br>12:15の回の現地チケットは残りわずか！<br>ぜひお越しください🐉🙌<a href="https://t.co/O0TVPJHHG5">https://t.co/O0TVPJHHG5</a><br><br>ライブビューイング会場はこちら🎬<a href="https://t.co/HO94WgEm4C">https://t.co/HO94WgEm4C</a>… <a href="https://t.co/4E3C5m9chs">pic.twitter.com/4E3C5m9chs</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1953735434778845327?ref_src=twsrc%5Etfw">August 8, 2025</a></blockquote>
