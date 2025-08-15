@@ -6,6 +6,8 @@ tag: maidragon
 read: read
 ---
 
+<script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 メイドラゴンに出演している声優さん方のコメント集
 
 ## 映画製作決定
