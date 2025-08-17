@@ -125,9 +125,17 @@ YouTube・公式Xで公開された舞台挨拶後のキャストコメント
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lJ1XKpwcYoA?si=UxooubzoZhP1tiqr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### キムンカムイ＆アーザード
+### アーザード＆キムンカムイ
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/11QtosnjuG8?si=OSfaJgY0ko7O076U" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+### トール＆アーザード
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rcLcJEt2HdY?si=p9QYzJvS615GhIEj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+### カンナ＆小林＆トール＆アーザード＆キムンカムイ
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q2gYArG8nS8?si=V1Hk7lPBhLkAqCaM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## その他の公式Xコメント
 
