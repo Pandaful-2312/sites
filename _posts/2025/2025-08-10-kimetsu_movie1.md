@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 劇場版「鬼滅の刃」無限城編 第一章 猗窩座再来 *
+title: 劇場版「鬼滅の刃」無限城編 第一章 猗窩座再来
 category: movie
 date: 2025-08-10
 updata: 2025-08-17
