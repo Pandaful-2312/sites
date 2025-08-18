@@ -120,7 +120,7 @@ tag: maidragon
 
 2期のときに発売されたドラマCD「メイドラゴンたちの日常」に収録されている楽曲
 
-感想は[こちら]({{site.baseurl}}/posts/2025/07/21/maidragon-dramCD#12.-THE-DRAGON-KING)のドラマCDのところに
+感想は[こちら]({{site.baseurl}}/2025/07/21/maidragon-dramaCD/#12-the-dragon-king)のドラマCDのところに
 
 ## 映画 「寂しがりやの竜」
 
