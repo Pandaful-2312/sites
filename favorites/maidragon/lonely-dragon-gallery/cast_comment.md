@@ -16,6 +16,8 @@ read: read
 
 ### ショート（小林＆トール＆カンナ）
 
+<iframe width="471" height="838" src="https://www.youtube.com/embed/5JMK3LyEZPA" title="＼＼キャストコメント動画到着／／ カンナ役：#長縄まりあ さん🐉小林さん役：#田村睦心 さん👓トール役：#桑原由気 さん🐉 #映画メイドラゴン #DragonMaid" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 <iframe width="184" height="327" src="https://www.youtube.com/embed/DjKG7KHmP5M" title="小林さん役・ #田村睦心 さんコメント🐉🍺映画『小林さんちのメイドラゴン さみしがりやの竜』 #映画メイドラゴン #DragonMaid #京アニ新作" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> <iframe width="184" height="327" src="https://www.youtube.com/embed/rshhaWmEyH0" title="トール役・ #桑原由気 さんコメント🐉✨映画『小林さんちのメイドラゴン さみしがりやの竜』 #映画メイドラゴン #DragonMaid #京アニ新作" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe> <iframe width="184" height="327" src="https://www.youtube.com/embed/Hkj8F3KF8Z8" title="カンナ役・ #長縄まりあ さんコメント🐉✨映画『小林さんちのメイドラゴン さみしがりやの竜』 #映画メイドラゴン #DragonMaid #京アニ新作" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## 公開前（カウントダウン）
