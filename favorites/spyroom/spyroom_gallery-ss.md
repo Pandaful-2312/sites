@@ -328,7 +328,7 @@ SSなし
 
 ### 悲劇のヒロイン
 
-日頃の仕返しで煽り返すモニカいい
+日頃の仕返しで煽り返すモニカいいねぇ
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　（…………？）<br>サラ　　（…………？）<br>リリィ　（…………？）<br>グレーテ「……？　振り返るシーンが１個、飛んでいませんか？」<br>アネット「ですねっ。次に振り返るのは、リリィの姉貴たちの脱獄シーンですっ」<br>エルナ　「カッコいいシーンが飛んでいるの！」<br>ティア… <a href="https://t.co/xAVgGKlS8a">https://t.co/xAVgGKlS8a</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1955235370557477312?ref_src=twsrc%5Etfw">August 12, 2025</a></blockquote>
 
