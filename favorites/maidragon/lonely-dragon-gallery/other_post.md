@@ -79,6 +79,7 @@ read: read
 ## スタッフトーク付き上映会 ポスト
 
 - [スタッフトーク付上映第1弾レポート](https://maidragon.jp/movie/special/20250724_butaiaisatsu/)
+- [スタッフトーク付上映第2弾レポート](https://maidragon.jp/movie/special/20250807_staff/)
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">❖━━━━━━━━━━━━━❖<br><br>　　7月24日(木)19:00～<br>スタッフトーク付上映開催！<br><br>❖━━━━━━━━━━━━━❖<br><br>🎫MOVIX京都<a href="https://t.co/MT59fEWEQt">https://t.co/MT59fEWEQt</a><br><br>＼門脇未来さん・キャラデザのおしごとを語る／<br>✅<a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> 用にキャラデザを調整？<br>✅私服設定ココだけのお話！… <a href="https://t.co/XdAvyqCghe">pic.twitter.com/XdAvyqCghe</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1947582388088758477?ref_src=twsrc%5Etfw">July 22, 2025</a></blockquote>
 
