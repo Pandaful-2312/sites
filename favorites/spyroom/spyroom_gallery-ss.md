@@ -343,12 +343,18 @@ SSなし
 
 まさかの短編集まで！
 
-### 仲良くなった後で大爆発
+### 仲良くなった後で大爆発大作戦
 
 サラの姉貴……  
 一番怪しまれない、仲良く慣れるのはサラだからしょうがないよなぁ
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「……突然、時系列が戻ったな」<br>グレーテ「寂しくも前回で終わりと思っていたですが……」<br>アネット「俺様っ、素直にビックリです」<br>サラ　　「最近は、直近の出来事を振り返っていたので」<br>ティア　「えぇ。落差がすごいわ」<br>モニカ　「ねぇ、一旦仕切り直さない？」<br>エルナ… <a href="https://t.co/oXMvt1AyRu">https://t.co/oXMvt1AyRu</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1959965631719370951?ref_src=twsrc%5Etfw">August 25, 2025</a></blockquote>
+
+### 家事当番
+
+サラの「コラっ」が可愛い！
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「パワハラ、よくない」<br>ジビア　「先輩風、カッコ悪い」<br>モニカ　「別にそんなシーンじゃないでしょ⁉」<br>グレーテ「当番をサボるモニカさんを、サラさんが𠮟責するシーンですね」<br>アネット「クラウスの兄貴とのお掃除バトル直後ですっ！」<br>エルナ… <a href="https://t.co/LreNyueclv">https://t.co/LreNyueclv</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1961044452899995797?ref_src=twsrc%5Etfw">August 28, 2025</a></blockquote>
 
 ## その他
 
