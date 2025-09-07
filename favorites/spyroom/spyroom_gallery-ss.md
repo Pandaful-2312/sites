@@ -356,6 +356,21 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「パワハラ、よくない」<br>ジビア　「先輩風、カッコ悪い」<br>モニカ　「別にそんなシーンじゃないでしょ⁉」<br>グレーテ「当番をサボるモニカさんを、サラさんが𠮟責するシーンですね」<br>アネット「クラウスの兄貴とのお掃除バトル直後ですっ！」<br>エルナ… <a href="https://t.co/LreNyueclv">https://t.co/LreNyueclv</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1961044452899995797?ref_src=twsrc%5Etfw">August 28, 2025</a></blockquote>
 
+### 任務後の交流
+
+- ティア・ジビア：人脈は大事にする
+- リリィ：気になりはする
+- モニカ・グレーテ：機密保持のために関わらない
+- サラ：危険な目に合わせたくない
+- エルナ：そもそも人との関わりがない
+- アネット：興味ない
+
+やっぱり8人8色な個性  
+サラはサラらしいし、アネットはアネットらしい  
+リリィは相変わらず本心が見えないなぁ……
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「モニカの姉貴の単独お仕事ですねっ」<br>エルナ　「初任務でも卒なくこなしたの！」<br>サラ　　「男の子を救い出し、無事に達成っすね」<br>モニカ　「まぁ、敵は取り逃がしたんだけどね」<br>ティア　「そもそも、このエピソード、モニカメイン過ぎない？」<br>ジビア　「不公平だ！… <a href="https://t.co/hebwZddV4w">https://t.co/hebwZddV4w</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1964308197889757536?ref_src=twsrc%5Etfw">September 6, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他
 
 ### バレンタイン
