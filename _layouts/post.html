@@ -36,13 +36,13 @@ layout: base
 
   <nav style="display: flex; justify-content: space-between;">
     {% if page.previous %}
-      <a href="{{ page.previous.url | relative_url }}">prev: [{{ page.previous.title }}]</a>
+      <a style="display: inline-block; width: 48%;" href="{{ page.previous.url | relative_url }}">prev: [{{ page.previous.title }}]</a>
     {% else %}
       <div></div>
     {% endif %}
     
     {% if page.next %}
-      <a href="{{ page.next.url | relative_url }}">next: [{{ page.next.title }}]</a>
+      <a style="display: inline-block; width: 48%;" href="{{ page.next.url | relative_url }}">next: [{{ page.next.title }}]</a>
     {% else %}
       <div></div>
     {% endif %}
