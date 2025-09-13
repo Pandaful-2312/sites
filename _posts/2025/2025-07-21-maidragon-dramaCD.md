@@ -17,13 +17,13 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 収録内容としてはアニメ化されていない原作のストーリー2つとファフっさんの自作ゲーム制作に関連したストーリーがいくつか  
 時間軸的にはアニメ2期のSと同時期ぐらいだと思われる
 
-### 1. トールと献立  
+## 1. トールと献立  
 
 小林家での献立に関する原作80話をもとにしたストーリー
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/X_p_xae4WhI?si=849-uaB8yqQQiyrv&amp;start=372" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 2. 滝谷とファフニール アキバへ行く
+## 2. 滝谷とファフニール アキバへ行く
 
 ファフッさんと滝谷が自作PCのためのパーツを買いにアキバへ行く原作82話をもとにしたストーリー
 
@@ -31,7 +31,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FqDlTdvIIJI?si=dBAg5etba8RMcjsf&amp;start=357" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-### 3. カンナの夏休み絵日記1
+## 3. カンナの夏休み絵日記1
 
 小林家の人工呼吸についての絵日記
 
@@ -39,7 +39,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 
 先生のコメントもおもろい
 
-### 4. エルマと小林さんの犯罪
+## 4. エルマと小林さんの犯罪
 
 小林さんと滝谷が会社で意味深な会話をしているのを聞いたトール  
 そこでエルマを呼び出して相談をする  
@@ -50,7 +50,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 解決の糸口になったのはジョージー  
 どこにでも居ますねあなた
 
-### 5. エルマとトールの犯罪
+## 5. エルマとトールの犯罪
 
 トールとファフっさんが小林家で意味深な会話をしているのを聞いた小林さん  
 またまた呼び出されたエルマに相談をする
@@ -61,14 +61,14 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 ここでも解決の糸口になったのはジョージー
 ほんとどこにでも居ますねあなた……
 
-### 6. カンナの夏休み絵日記2
+## 6. カンナの夏休み絵日記2
 
 小林家で水族館にいったときの絵日記  
 
 相変わらず暴走するトール  
 水族館後に手巻き寿司とは……
 
-### 7. カンナさんの『好き』ください！
+## 7. カンナさんの『好き』ください！
 
 ファフっさんの自作ゲームに使う音を録音することを頼まれたカンナ  
 才川といっしょに色々な音を録音することに  
@@ -76,7 +76,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 
 結果的に録音できてよかったね、才川
 
-### 8. ルコアと小説投稿サイト
+## 8. ルコアと小説投稿サイト
 
 これだけ前後と関連がないお話  
 ルコアが人間について知るために小説投稿サイトを漁る  
@@ -85,7 +85,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 年上お姉さんと年下の少年との関係を描いたものだけを読んでおかしくなるルコア  
 いつもよりはマイルドに翔太を困らせるルコア姉さんでした
 
-### 9. カンナと夏休み絵日記3
+## 9. カンナと夏休み絵日記3
 
 クロエのお屋敷へ遊びに行った絵日記
 
@@ -93,14 +93,14 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 
 そして冷静な先生のコメント
 
-### 10. トールとエルマのアフレコ
+## 10. トールとエルマのアフレコ
 
 自作ゲームNPCのセリフ収録をトールとエルマに頼んだファフっさん  
 
 トールとエルマに仲良しこよしなセリフを言わせるファフっさん、ナイス！！  
 照れながら言う二人の関係性、いいねぇ
 
-### 11. ファフっさんの自作ゲーム体験
+## 11. ファフっさんの自作ゲーム体験
 
 完成した自作ゲームのデバックをする一般人代表のタケと命の手綱を握るのイルル  
 
@@ -114,7 +114,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 イルル・タケの恋路も気になりますねぇ  
 イルルは根がいい子だから報われてほしいな
 
-### 12. THE DRAGON KING
+## 12. THE DRAGON KING
 
 ボイスドラマではなく、スーパーちょろゴンずが歌う描き下ろし楽曲  
 11話の最後でトールがゲームのEDとして作曲した（ことになっている）曲  
@@ -147,11 +147,11 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 小林さんや周りの人間を信じて一緒に  
 イシュカンの壁を壊して
 
-### 番外編
+## 番外編
 
 カンナの夏休み絵日記はスペシャルバージョンがYouTubeに公開されている
 
-#### カンナの夏休み絵日記スペシャル1
+### カンナの夏休み絵日記スペシャル1
 
 小林家一行が北極へ遊びに行った絵日記
 
@@ -160,7 +160,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/puHuJ0Vubj0?si=BLoSCs8-Gw8NauKD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-#### カンナの夏休み絵日記スペシャル2
+### カンナの夏休み絵日記スペシャル2
 
 不良集団 vs ドラゴン軍団 のドッチボール対決の絵日記
 
@@ -169,7 +169,7 @@ CDに収録されている新規楽曲「THE DORAGON KING」だけはストリ�
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/FgedgS1pVB8?si=cDWT1SaqavkNbVrg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-#### カンナの夏休み絵日記スペシャル3
+### カンナの夏休み絵日記スペシャル3
 
 コンビニで振り込め詐欺を阻止する絵日記
 
