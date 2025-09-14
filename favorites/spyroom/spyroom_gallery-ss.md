@@ -327,6 +327,11 @@ SSなし
 
 ### 脱獄劇
 
+明らかに様子がおかしいリリモニ  
+サラもモニカが関わると積極的！
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">※最新カクヨムネクスト短編　微ネタバレあり※<br><br>ティア　「脱獄最終局面『タナトス』さんとの闘いね」<br>エルナ　「ライラット王国最強の破壊神」<br>アネット「姉貴たち三人の共闘っ！　かっけぇですね！」<br>グレーテ「『灯』の最前線で身体を張る、お三方……！」<br>ティア… <a href="https://t.co/EyMN0htwUj">https://t.co/EyMN0htwUj</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1967195297123377441?ref_src=twsrc%5Etfw">September 14, 2025</a></blockquote>
+
 ### 悲劇のヒロイン
 
 日頃の仕返しで煽り返すモニカいいねぇ
