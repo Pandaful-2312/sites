@@ -15,6 +15,7 @@ read: read
 - [アイコン配布](#アイコン配布)
 - [スタッフトーク付き上映会 ポスト](#スタッフトーク付き上映会-ポスト)
 - [大ヒット御礼舞台挨拶 ポスト](#大ヒット御礼舞台挨拶-ポスト)
+- [興行収入5億円突破](#興行収入5億円突破)
 
 ## MX4D体験してみた
 
@@ -129,3 +130,7 @@ read: read
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">濃ゆいお話しもきけて大爆笑して<br>充実した楽しい舞台挨拶でした☺️✨<br>来てくださった方々、ライブビューイングで観てくださった方々、ありがとうございました！！<br>ぜひとも何度でも劇場に足をお運びください！映画館という特別な空間で観られる機会を余すことなく楽しんでくださいね✨ <a href="https://t.co/fozhKOJNX7">https://t.co/fozhKOJNX7</a></p>&mdash; 田村睦心 (@623tmr) <a href="https://twitter.com/623tmr/status/1954416333367414847?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">小林さんちのキムン…もとい💦<br>映画『小林さんちのメイドラゴンさみしがりやの竜』🐲舞台挨拶&amp;LVメンバー＝セリフ収録メンバーでお送りしました。<br>観て下さった皆さま本当にありがとう❗<br>ザ・オフショット📸<br>とても暖かく愛のある劇場版、絶賛公開中📽️<br>長～く愛でて欲しい感動アニメ映画です。 <a href="https://t.co/J8Vi9ZdUPh">pic.twitter.com/J8Vi9ZdUPh</a></p>&mdash; 立木文彦 (@Fu_minT61) <a href="https://twitter.com/Fu_minT61/status/1954538456258064693?ref_src=twsrc%5Etfw">August 10, 2025</a></blockquote>
+
+## 興行収入5億円突破
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">＼たくさん観てくれてありがとう！／<br>　 興行収入5億円になりました❣<br><br>そんな記念に…一夜限りの特別上映なんてどうですか🌙<br><br>「小林さんちのメイドラゴン」オールナイト！<br>（まさか眠たいとか言いませんよね？）<br><br>チケット販売中🐉<a href="https://t.co/NMRL5rT5C2">https://t.co/NMRL5rT5C2</a><a href="https://twitter.com/hashtag/%E6%98%A0%E7%94%BB%E3%83%A1%E3%82%A4%E3%83%89%E3%83%A9%E3%82%B4%E3%83%B3?src=hash&amp;ref_src=twsrc%5Etfw">#映画メイドラゴン</a> <a href="https://twitter.com/hashtag/DragonMaid?src=hash&amp;ref_src=twsrc%5Etfw">#DragonMaid</a> <a href="https://t.co/zJjbie39aX">pic.twitter.com/zJjbie39aX</a></p>&mdash; 映画『小林さんちのメイドラゴン さみしがりやの竜』公式 (@maidragon_anime) <a href="https://twitter.com/maidragon_anime/status/1967861014311080125?ref_src=twsrc%5Etfw">September 16, 2025</a></blockquote>
