@@ -1,5 +1,5 @@
 {% if page.tag %}
-    {% assign sortedTags = page.tag | split:',' | sort %}
+    {% assign sortedTags = page.tag | split:',' %}
     <hr>
     {% for tag in sortedTags %}
         {% assign flag = 0 %}
