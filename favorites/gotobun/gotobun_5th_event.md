@@ -2,7 +2,7 @@
 layout: page
 title: 五等分の花嫁 5th Anniversary Event *
 permalink: gotobun/5th_aniv_event
-tag: gotobun
+tag:gotobun
 ---
 
 ## 概要

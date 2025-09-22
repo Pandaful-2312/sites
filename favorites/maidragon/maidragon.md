@@ -2,7 +2,7 @@
 layout: page
 title: 小林さんちのメイドラゴン
 permalink: maidragon
-tag: maidragon
+tag:maidragon
 ---
 
 ## 概要

@@ -3,7 +3,7 @@ layout: post
 title: 五等分の花嫁 【春夏秋冬】 2
 category: novel
 date: 2025-05-18
-tag: gotobun
+tag:gotobun
 ---
 
 >「これは、私たち中野家五つ子の1月から12月までの日常を描いた、1年間の物語」

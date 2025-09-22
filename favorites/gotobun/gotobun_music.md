@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 五等分の花嫁 ~音楽~
-tag: gotobun
+tag:gotobun
 permalink: gotobun/music
 ---
 

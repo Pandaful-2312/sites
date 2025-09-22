@@ -3,7 +3,7 @@ layout: post
 title: 冴えない彼女の育てかた After 〜 Three Years Later 〜
 category: novel
 date: 2024-10-15
-tag: saekano
+tag:saekano
 ---
 
 ## 最強コンビ解消!?

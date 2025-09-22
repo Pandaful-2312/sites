@@ -2,7 +2,7 @@
 layout: page
 title: 小林さんちのメイドラゴン 音楽集 *
 permalink: maidragon/music
-tag: maidragon
+tag:maidragon
 ---
 
 ## 1期

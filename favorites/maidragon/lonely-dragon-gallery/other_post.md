@@ -2,7 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 その他 ポスト集
 permalink: maidragon/lonely-dragon-gallery/other_post
-tag: maidragon-lonely-dragon-gallery
+tag:maidragon-lonely-dragon-gallery
 ---
 
 <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>

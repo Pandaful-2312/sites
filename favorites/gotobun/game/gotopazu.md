@@ -2,7 +2,7 @@
 layout: page
 title: 五等分の花嫁 五つ子ちゃんはパズルを五等分できない。
 permalink: gotobun/game/gotopazu
-tag: gotobun
+tag:gotobun
 ---
 
 ## 概要

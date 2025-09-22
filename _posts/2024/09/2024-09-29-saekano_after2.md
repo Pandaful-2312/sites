@@ -2,7 +2,7 @@
 layout: post
 title: 冴えない彼女の育てかた After 〜 Two Years Later 〜
 category: novel
-tag: saekano
+tag:saekano
 date: 2024-09-29
 ---
 

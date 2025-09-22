@@ -2,7 +2,7 @@
 layout: page
 title: 五等分のプリンセス ～幻想と深淵と魔法学院～ 衣装
 permalink: gotobun/game/gotopuri-clothes
-tag: gotopuri
+tag:gotopuri
 ---
 
 ## 制服姿

@@ -2,7 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 映画PV・CM
 permalink: maidragon/lonely-dragon-gallery/PV
-tag: maidragon-lonely-dragon-gallery
+tag:maidragon-lonely-dragon-gallery
 ---
 
 映画のPVやCMのまとめ
