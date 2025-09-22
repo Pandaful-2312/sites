@@ -2,6 +2,7 @@
     {% assign sortedTags = page.tag | split:',' | sort %}
     <hr>
     {% for tag in sortedTags %}
+        |{{tag}}|
         {% assign flag = 0 %}
         <ul>
         {% assign tagged_pages = site.pages | where_exp: "page", "page.tag contains tag" %}
