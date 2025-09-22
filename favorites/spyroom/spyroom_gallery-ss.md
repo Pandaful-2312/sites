@@ -374,7 +374,13 @@ SSなし
 サラはサラらしいし、アネットはアネットらしい  
 リリィは相変わらず本心が見えないなぁ……
 
-<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「モニカの姉貴の単独お仕事ですねっ」<br>エルナ　「初任務でも卒なくこなしたの！」<br>サラ　　「男の子を救い出し、無事に達成っすね」<br>モニカ　「まぁ、敵は取り逃がしたんだけどね」<br>ティア　「そもそも、このエピソード、モニカメイン過ぎない？」<br>ジビア　「不公平だ！… <a href="https://t.co/hebwZddV4w">https://t.co/hebwZddV4w</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1964308197889757536?ref_src=twsrc%5Etfw">September 6, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「モニカの姉貴の単独お仕事ですねっ」<br>エルナ　「初任務でも卒なくこなしたの！」<br>サラ　　「男の子を救い出し、無事に達成っすね」<br>モニカ　「まぁ、敵は取り逃がしたんだけどね」<br>ティア　「そもそも、このエピソード、モニカメイン過ぎない？」<br>ジビア　「不公平だ！… <a href="https://t.co/hebwZddV4w">https://t.co/hebwZddV4w</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1964308197889757536?ref_src=twsrc%5Etfw">September 6, 2025</a></blockquote>
+
+### グレーテ満面の笑み
+
+処刑人の正体とは……
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「満面の笑み、グレーテちゃん」<br>ジビア　「なんていい笑顔しているんだ」<br>ティア　「先生が好んでいたミートパイ屋さんを守っての、この表情ね」<br>エルナ　「ルーカスさんも大好きな『焔』御用達の店なの！」<br>サラ　　「全員で悪徳社長を撃退した上でのお話っすね」… <a href="https://t.co/GjLwyideXo">https://t.co/GjLwyideXo</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1969746133309329828?ref_src=twsrc%5Etfw">September 21, 2025</a></blockquote>
 
 ## その他
 
