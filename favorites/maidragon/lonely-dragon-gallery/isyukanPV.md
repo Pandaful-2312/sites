@@ -2,8 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 イシュカンPV
 permalink: maidragon/lonely-dragon-gallery/isyukanPV
-tag: maidragon
-read: read
+tag: maidragon-lonely-dragon-gallery
 ---
 
 > \ 🐉イシュカンPV👩 /  

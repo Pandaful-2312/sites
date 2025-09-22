@@ -2,8 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 スタッフイラスト集
 permalink: maidragon/lonely-dragon-gallery/staff
-tag: maidragon
-read: read
+tag: maidragon-lonely-dragon-gallery
 ---
 
 公式Xで映画公開後に投稿されていたイラスト、YouTubeで公開されたイラスト動画

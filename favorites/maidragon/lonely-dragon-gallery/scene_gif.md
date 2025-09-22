@@ -2,8 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 映画シーンGIF
 permalink: maidragon/lonely-dragon-gallery/scene_gif
-tag: maidragon
-read: read
+tag: maidragon-lonely-dragon-gallery
 ---
 
 公式Xで映画のいくつかのシーンがGIFで公開されている

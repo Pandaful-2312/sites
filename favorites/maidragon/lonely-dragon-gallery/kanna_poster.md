@@ -2,8 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 カンナと全国かくれんぼ
 permalink: maidragon/lonely-dragon-gallery/kanna_poster
-tag: maidragon
-read: read
+tag: maidragon-lonely-dragon-gallery
 ---
 
 すべての都道府県のポスターが公式Xで公開されている

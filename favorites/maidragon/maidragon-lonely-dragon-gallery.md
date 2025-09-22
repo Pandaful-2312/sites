@@ -2,7 +2,7 @@
 layout: page
 title: 映画 小林さんちのメイドラゴン さみしがりやの竜 Gallery
 permalink: maidragon/lonely-dragon-gallery
-tag: maidragon
+tag: maidragon,maidragon-lonely-dragon-gallery
 ---
 
 公式X、Youtubeチャンネルで様々な動画や写真、GIFなどが公開されているのでまとめておくページ  
