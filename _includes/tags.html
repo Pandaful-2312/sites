@@ -4,7 +4,7 @@
     {% for tag in sortedTags %}
         {% assign flag = 0 %}
         <ul>
-        {% assign tagged_pages = site.pages | where_exp: "page", "page.tag == tag" %}
+        {% assign tagged_pages = site.pages | where_exp: "page", "page.tag contains tag" %}
         {% assign sorted_pages = tagged_pages | sort: "url" %}
         {% for p in sorted_pages %}
             {% if flag == 0 %}
