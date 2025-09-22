@@ -4,7 +4,7 @@ title: リズと青い鳥 *
 category: movie
 date: 2025-08-12
 updata: 2025-08-15
-tag:euph
+tag: euph
 ---
 
 「響け！ユーフォニアム」に登場する鎧塚みぞれと傘木希美を主人公とするスピンオフに当たる作品  

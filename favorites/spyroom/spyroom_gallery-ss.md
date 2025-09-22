@@ -2,7 +2,7 @@
 layout: page
 title: スパイ教室 Gallery SS
 permalink: spyroom/gallery-ss
-tag:spyroom
+tag: spyroom
 ---
 
 - [概要](#概要)

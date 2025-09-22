@@ -2,7 +2,7 @@
 layout: page
 title: ソードアート・オンライン フラクチュアード デイドリーム
 permalink: sao/saofd
-tag:sao
+tag: sao
 ---
 
 - [時間・空間を超えた共演！](#時間空間を超えた共演)

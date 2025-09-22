@@ -3,7 +3,7 @@ layout: post
 title: 小林さんちのメイドラゴンS ドラマCD 「メイドラゴンたちの日常」
 category: goods
 date: 2025-07-21
-tag:maidragon
+tag: maidragon
 ---
 
 ## 探し求めていたドラマCD！

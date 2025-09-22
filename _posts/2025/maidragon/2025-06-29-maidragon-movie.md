@@ -4,7 +4,7 @@ title: 映画 小林さんちのメイドラゴン さみしがりやの竜
 category: movie
 date: 2025-06-28
 update: 2025-08-11
-tag:maidragon
+tag: maidragon
 ---
 
 ![映画ポスター]({{site.baseurl}}/pic/maidragon/lonely-dragon/poster.JPG)  

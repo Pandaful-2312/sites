@@ -2,7 +2,7 @@
 layout: page
 title: 五等分の花嫁 ゲーム
 permalink: gotobun/game
-tag:gotobun
+tag: gotobun
 ---
 
 ## 概要

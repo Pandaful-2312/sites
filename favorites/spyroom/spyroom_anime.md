@@ -2,7 +2,7 @@
 layout: page
 title: スパイ教室 アニメ
 permalink: spyroom/anime
-tag:spyroom
+tag: spyroom
 ---
 
 ## アニメまとめ

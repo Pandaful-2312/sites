@@ -3,7 +3,7 @@ layout: post
 title: 小林さんちのメイドラゴン *
 category: anime
 date: 2025-06-25
-tag:maidragon
+tag: maidragon
 ---
 
 ## 感想

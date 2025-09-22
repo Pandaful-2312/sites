@@ -2,7 +2,7 @@
 layout: page
 title: 五等分の花嫁
 permalink: gotobun
-tag:gotobun
+tag: gotobun
 ---
 
 ## 概要

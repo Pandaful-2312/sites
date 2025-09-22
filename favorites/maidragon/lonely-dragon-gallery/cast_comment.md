@@ -2,7 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 キャストコメント
 permalink: maidragon/lonely-dragon-gallery/cast_comment
-tag:maidragon-lonely-dragon-gallery
+tag: maidragon-lonely-dragon-gallery
 ---
 
 <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>

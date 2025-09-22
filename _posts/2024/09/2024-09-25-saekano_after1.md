@@ -3,7 +3,7 @@ layout: post
 title: 冴えない彼女の育てかた After 〜 One Year Later 〜
 category: novel
 date: 2024-09-25
-tag:saekano
+tag: saekano
 ---
 
 ## イチャイチャしてやんの…

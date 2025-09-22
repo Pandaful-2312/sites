@@ -2,7 +2,7 @@
 layout: page
 title: 映画 さみしがりやの竜 映画ワンシーンちょい見せ！
 permalink: maidragon/lonely-dragon-gallery/tyoimise
-tag:maidragon-lonely-dragon-gallery
+tag: maidragon-lonely-dragon-gallery
 ---
 
 映画のワンシーンが字幕ありで公開されている  

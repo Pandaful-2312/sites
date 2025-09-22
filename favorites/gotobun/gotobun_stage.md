@@ -2,7 +2,7 @@
 layout: page
 title: 舞台 五等分の花嫁
 permalink: gotobun/stage
-tag:gotobun
+tag: gotobun
 ---
 
 ## 概要

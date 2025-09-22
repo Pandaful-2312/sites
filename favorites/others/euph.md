@@ -2,7 +2,7 @@
 layout: page
 title: 響け！ユーフォニアム
 permalink: others/euph
-tag:euph
+tag: euph
 ---
 
 ## 概要
