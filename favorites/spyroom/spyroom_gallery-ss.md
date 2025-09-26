@@ -382,6 +382,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「満面の笑み、グレーテちゃん」<br>ジビア　「なんていい笑顔しているんだ」<br>ティア　「先生が好んでいたミートパイ屋さんを守っての、この表情ね」<br>エルナ　「ルーカスさんも大好きな『焔』御用達の店なの！」<br>サラ　　「全員で悪徳社長を撃退した上でのお話っすね」… <a href="https://t.co/GjLwyideXo">https://t.co/GjLwyideXo</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1969746133309329828?ref_src=twsrc%5Etfw">September 21, 2025</a></blockquote>
 
+### 結婚生活
+
+リリィとクラウスの結婚生活とグレーテ・モニカからの離婚の圧
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">サラ　　「花嫁ロワイヤルのオチっすね」<br>ジビア　「クラウスの嫁争奪戦・まさかの優勝者」<br>エルナ　「惚けた表情がかわいいの！」<br>ティア　「やはり振り返るべくは、最初興味はなかったのに――」<br>グレーテ「リリィさんの参加表明後に参戦し――」<br>アネット「瞬殺されたモニカの姉貴ですねっ！」<br>モニカ… <a href="https://t.co/odo0pqsJVd">https://t.co/odo0pqsJVd</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1971193581034676545?ref_src=twsrc%5Etfw">September 25, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
