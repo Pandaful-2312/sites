@@ -51,3 +51,19 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日更新のSSのお題は<br>コードネーム「竜胆あおい」さんより<br>「LWS探偵事務所」（お題は一部省略）<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/XyGEb0Onuk">pic.twitter.com/XyGEb0Onuk</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1971433148513984618?ref_src=twsrc%5Etfw">September 26, 2025</a></blockquote>
+
+## 一時
+
+ディン共和国のスパイチーム『焔』と『灯』がライラット王国で共同作戦を行う  
+この世界線ではクラウスは『焔』に所属、『灯』の少女たちは皆卒業して独立したチームを組んでいる  
+この世界でクラウスとグレーテのデートが行われる
+
+```text
+このタイミングで……
+13巻であの状況になった後でのこれは……
+
+最後の言葉は信じていいよね？
+グレーテ、この世界でだけでも救われてよかった
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日更新のSSのお題は<br>コードネーム「紅茶」さんより<br>グレーテとボスが、等身大の若者として過ごしている。<br>（お題は一部省略）<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/HwWqIsgfdF">pic.twitter.com/HwWqIsgfdF</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1974076267516604678?ref_src=twsrc%5Etfw">October 3, 2025</a></blockquote>

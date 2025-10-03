@@ -19,6 +19,7 @@ tag: spyroom
 - [11巻 付焼刃のモニカ](#11巻-付焼刃のモニカ)
 - [12巻 万愚節のエルナ](#12巻-万愚節のエルナ)
 - [短編集1巻 花嫁ロワイヤル](#短編集1巻-花嫁ロワイヤル)
+- [短編集2巻 私を愛したスパイ先生](#短編集2巻-私を愛したスパイ先生)
 - [その他](#その他)
 
 ## 概要
@@ -387,6 +388,12 @@ SSなし
 リリィとクラウスの結婚生活とグレーテ・モニカからの離婚の圧
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">サラ　　「花嫁ロワイヤルのオチっすね」<br>ジビア　「クラウスの嫁争奪戦・まさかの優勝者」<br>エルナ　「惚けた表情がかわいいの！」<br>ティア　「やはり振り返るべくは、最初興味はなかったのに――」<br>グレーテ「リリィさんの参加表明後に参戦し――」<br>アネット「瞬殺されたモニカの姉貴ですねっ！」<br>モニカ… <a href="https://t.co/odo0pqsJVd">https://t.co/odo0pqsJVd</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1971193581034676545?ref_src=twsrc%5Etfw">September 25, 2025</a></blockquote>
+
+## 短編集2巻 私を愛したスパイ先生
+
+### アネットのバイト
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">グレーテ「脳が破壊される、アネットさんのアルバイト光景……！」<br>エルナ　「しごでき有能ウェイトレスなの！」<br>モニカ　「逆にもう一生バイトしていれば？」<br>アネット「俺様、真面目に任務をこなしていただけなんですけど？」<br>ティア　「一応そうなのかしら……？」<br>ジビア… <a href="https://t.co/D4dSMOh2WP">https://t.co/D4dSMOh2WP</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1973743890256867698?ref_src=twsrc%5Etfw">October 2, 2025</a></blockquote>
 
 ## その他
 
