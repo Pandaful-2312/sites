@@ -2,7 +2,7 @@
 layout: page
 title: 五等分のプリンセス ～幻想と深淵と魔法学院～ 個別ストーリー・一花
 permalink: gotobun/game/gotopuri-story-1
-tag: story-gotopuri
+tag: Gotopuri-story
 ---
 
 個別ストーリーは親密度を上げたうえで、課題クエストをクリアすることでそれぞれ8話解放される  

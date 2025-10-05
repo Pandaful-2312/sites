@@ -2,7 +2,7 @@
 layout: page
 title: 五等分のプリンセス ～幻想と深淵と魔法学院～ ストーリー
 permalink: gotobun/game/gotopuri-story
-tag: gotopuri,story-gotopuri
+tag: gotopuri,Gotopuri-story
 ---
 
 ここでは共通ストーリー・10章までとエピローグのまとめ・感想  
