@@ -2,7 +2,7 @@
 layout: page
 title: 五等分のプリンセス ～幻想と深淵と魔法学院～ ストーリー
 permalink: gotobun/game/gotopuri-story
-tag: gotopuri
+tag: gotopuri,gotopuri-story
 ---
 
 五つ子・らいは・マルオ・勇也・下田・武田・その他モブはフルボイス  
@@ -950,6 +950,8 @@ tag: gotopuri
 ```
 
 ### エピローグ
+
+エピローグは五つ子の個別ルートをすべて解放後、クエスト115をクリアすることで解放される
 
 ## 感想
 
