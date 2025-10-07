@@ -395,6 +395,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">グレーテ「脳が破壊される、アネットさんのアルバイト光景……！」<br>エルナ　「しごでき有能ウェイトレスなの！」<br>モニカ　「逆にもう一生バイトしていれば？」<br>アネット「俺様、真面目に任務をこなしていただけなんですけど？」<br>ティア　「一応そうなのかしら……？」<br>ジビア… <a href="https://t.co/D4dSMOh2WP">https://t.co/D4dSMOh2WP</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1973743890256867698?ref_src=twsrc%5Etfw">October 2, 2025</a></blockquote>
 
+### ティア主役回？
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「恋愛詐欺師・撃退打ち合わせ」<br>リリィ　「あれ？　サラちゃん中心のお話ですよね？」<br>モニカ　「だよね。そんな気がする」<br>アネット「なんでティアの姉貴がこんな仕切っているんです？」<br>ティア　「私！　私の活躍どころだから！」<br>サラ… <a href="https://t.co/mUDHzivrba">https://t.co/mUDHzivrba</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1975194075163976113?ref_src=twsrc%5Etfw">October 6, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
