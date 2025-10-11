@@ -67,3 +67,17 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日更新のSSのお題は<br>コードネーム「紅茶」さんより<br>グレーテとボスが、等身大の若者として過ごしている。<br>（お題は一部省略）<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/HwWqIsgfdF">pic.twitter.com/HwWqIsgfdF</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1974076267516604678?ref_src=twsrc%5Etfw">October 3, 2025</a></blockquote>
+
+## 合コン
+
+白蜘蛛とクラウスが任務で同じ合コンの場にいたら……  
+時間軸的には第8巻・決戦後であるため、完全なifストーリー  
+
+```text
+お久しぶりの白蜘蛛さん
+クラウスに対して恋愛強者ムーブをかます
+
+クラウスもモニカやサラにあんな思いをさせたことを気にかけていたんだなぁ
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「かいり」さんより<br>「もし白蜘蛛さんが任務で合コンに行ったら」<br>（お題は一部省略）<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/mV5zPpOZyq">pic.twitter.com/mV5zPpOZyq</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1976603531156316189?ref_src=twsrc%5Etfw">October 10, 2025</a></blockquote>
