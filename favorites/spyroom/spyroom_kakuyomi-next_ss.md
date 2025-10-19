@@ -81,3 +81,15 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「かいり」さんより<br>「もし白蜘蛛さんが任務で合コンに行ったら」<br>（お題は一部省略）<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/mV5zPpOZyq">pic.twitter.com/mV5zPpOZyq</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1976603531156316189?ref_src=twsrc%5Etfw">October 10, 2025</a></blockquote>
+
+## 続・秘事
+
+第8巻〜第9巻の間のモニカの状態異常のお話  
+話的に全く矛盾していることはないため原作軸とも捉えられる
+
+```text
+モニカが明らかにおかしくなってるのおもろい
+エルナの髪掴んでまな板にのせるの狂いすぎだ
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「ネスさん」より<br>『11巻冒頭の話。人生最大の幸福感に包まれ、幸せすぎていろいろと調子を崩すモニカ』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/hWmcmGbi8l">pic.twitter.com/hWmcmGbi8l</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1979155437514821872?ref_src=twsrc%5Etfw">October 17, 2025</a></blockquote>
