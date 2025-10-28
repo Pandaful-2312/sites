@@ -399,6 +399,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「恋愛詐欺師・撃退打ち合わせ」<br>リリィ　「あれ？　サラちゃん中心のお話ですよね？」<br>モニカ　「だよね。そんな気がする」<br>アネット「なんでティアの姉貴がこんな仕切っているんです？」<br>ティア　「私！　私の活躍どころだから！」<br>サラ… <a href="https://t.co/mUDHzivrba">https://t.co/mUDHzivrba</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1975194075163976113?ref_src=twsrc%5Etfw">October 6, 2025</a></blockquote>
 
+### 伝説のエルナ
+
+こんな顔バレしてええんか、スパイが
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「これ？　いつのシーンだっけ？」<br>リリィ　「あー、あれです」<br>サラ　　「ムザイア合衆国への道中……」<br>グレーテ「豪華客船でのシージャック計画騒動……」<br>モニカ　「過激な新興宗教団体に、エルナが単身潜入した時か」<br>アネット「エルーナ大導師っ‼‼」<br>ティア… <a href="https://t.co/bPwh56FyWk">https://t.co/bPwh56FyWk</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1983160629277143379?ref_src=twsrc%5Etfw">October 28, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
