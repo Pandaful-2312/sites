@@ -2,7 +2,7 @@
 layout: post
 title: 『私たちは、いま！！ ―京アニのセカイ展―』*
 category: event
-date: 2025-11-25
+date: 2025-10-25
 updata: 2025-11-26
 ---
 
