@@ -405,6 +405,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「これ？　いつのシーンだっけ？」<br>リリィ　「あー、あれです」<br>サラ　　「ムザイア合衆国への道中……」<br>グレーテ「豪華客船でのシージャック計画騒動……」<br>モニカ　「過激な新興宗教団体に、エルナが単身潜入した時か」<br>アネット「エルーナ大導師っ‼‼」<br>ティア… <a href="https://t.co/bPwh56FyWk">https://t.co/bPwh56FyWk</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1983160629277143379?ref_src=twsrc%5Etfw">October 28, 2025</a></blockquote>
 
+### 『リリィちゃん』
+
+このリーダー、何か隠しているな……
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">モニカ　「あれ？　これ、いつのシーン？」<br>ジビア　「ちょいちょい分からんシーンがあるな」<br>グレーテ「短編ですと、皆さん、離れ離れに行動しがちですからね……」<br>リリィ　「あぁ、ムザイア合衆国での戦闘シーンですね」<br>リリィ　「わたしが働き蟻６人と闘ってい――」<br>ジビア… <a href="https://t.co/dc9Vhbh5jb">https://t.co/dc9Vhbh5jb</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1985335055523491997?ref_src=twsrc%5Etfw">November 3, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン

@@ -105,3 +105,19 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「らん」さんより<br>『鳳メンバーが大学生だったら、それぞれ夏休みをどんな風に過ごすか』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/jMewoi9ChN">pic.twitter.com/jMewoi9ChN</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1981684598347387042?ref_src=twsrc%5Etfw">October 24, 2025</a></blockquote>
+
+## 星霧
+
+陽炎パレスの管理人・『星霧』のレイジ  
+焔のころから陽炎パレスを陰ながら守り続けてきたスパイ  
+時系列的には第9巻のバカンスに出かける前の話なのだろう  
+
+```text
+ランの再就職先を探すときに少しだけ出てきたレイジさん
+焔のころからこの業務についていたそうで、なかなかの苦労者
+
+今回に関しては完全なifストーリーというわけでもなさそう
+こんなところにも物語があったんだなぁ
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「ひーちゃん」さんより　<br>『管理人レイジの日常』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/Q4zT9rbGSP">pic.twitter.com/Q4zT9rbGSP</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1984183574845853700?ref_src=twsrc%5Etfw">October 31, 2025</a></blockquote>
