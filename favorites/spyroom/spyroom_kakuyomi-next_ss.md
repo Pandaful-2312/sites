@@ -146,3 +146,38 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「みっちょ」さんより　<br>『陽炎パレスに出入り自由になったニケさん』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUDHAL">https://t.co/FOLtvUDHAL</a> <a href="https://t.co/ssW2VQX9Y9">pic.twitter.com/ssW2VQX9Y9</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1986735387918709110?ref_src=twsrc%5Etfw">November 7, 2025</a></blockquote>
+
+## 呪縛
+
+『もし、ギードがクラウスをビュマル王国に派遣せず蛇に勧誘していたら』
+
+クラウスは蛇に寝返った場合、本領を発揮できず、蛇の仲間と対立し、神樹の墓守に敵わずに終わる 　
+それほどまでに、フェロニカがかけた「家族愛」という呪縛は強い
+
+`「クラウス、アナタはね――【いつか一人で立たなくてはならないの】」`  
+ギードが一人で寝返ったからこそ、この言葉が引き出され、クラウスを「焔」から解放することになる
+
+```text
+今までのSSの中で一番衝撃的
+
+こんな未来もあったかもしれない
+フェロニカ・ギードはこのようなことが怒ることを想定していたのかもしれない
+その上で、出したのがあの結末だった
+結果的に、クラウスにとって良い方向に進んでいるのだろうか
+
+フェロニカのあの言葉はクラウスの呪縛を解くきっかけになる
+逆に、この言葉がなければ誰であってもクラウスを焔から解放することはできない
+改めて、フェロニカの強大な力を感じた
+
+双子の実力も相変わらず
+弟分であるクラウスに対して、容赦のない奇襲
+そして、クラウス・ディン共和国の裏切り者のスパイを狩るために採用されたのは、
+クラウスも知らない養成所の落ちこぼれの少女・リリィ
+
+クラウスが双子と同じ結論に至っているのを見ると、やはり弟分だったんだと思わされる
+
+直近で発売される14巻では、この軸ではなく、正式に蛇として活動するクラウス
+一体どのような結末を迎えるのだろうか…
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「鳳華」さんより　<br>『もし、ギードがクラウスをビュマル王国に派遣せず蛇に勧誘していたら』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUDHAL">https://t.co/FOLtvUDHAL</a> <a href="https://t.co/z6UWAXyQDF">pic.twitter.com/z6UWAXyQDF</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1989304112291234292?ref_src=twsrc%5Etfw">November 14, 2025</a></blockquote>
