@@ -15,6 +15,8 @@ tag: spyroom
 
 ## サイゼ
 
+『サイゼに行く鳳』
+
 鳳が現代でサイゼに行くというもの  
 この時空では、鳳のほとんどのメンバーが同じ大学のサークル仲間で、ランだけ高校生で特別にサークルに参加しているという設定  
 クラウスとアーディーはOB・OGで、灯の少女たちは女子高生ということになっている
@@ -28,6 +30,8 @@ tag: spyroom
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画スタート🥳<br>＼<br><br>本日より毎週金曜日正午に更新🗓️<br>カクヨムネクスト『スパイ教室【短編】』ページで<br>何でもアリ！なSS企画の連載が始まりました✨<br><br>本日更新のSSのお題は<br>コードネーム「よる」さんより<br>『サイゼに行く鳳』🍽️<br><br>🔽今すぐ読む<a href="https://t.co/pojKzB666e">https://t.co/pojKzB666e</a> <a href="https://t.co/rKQOdlvNeA">pic.twitter.com/rKQOdlvNeA</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1968933077335396798?ref_src=twsrc%5Etfw">September 19, 2025</a></blockquote>
 
 ## ＬＷＳ探偵事務所
+
+「LWS探偵事務所」
 
 ルーカスが資金を稼ぐために探偵事務所を解説したというストーリー  
 スージーを助手として早速始めたが、ロクな依頼者が来ず……  
@@ -54,6 +58,8 @@ tag: spyroom
 
 ## 一時
 
+グレーテとボスが、等身大の若者として過ごしている。
+
 ディン共和国のスパイチーム『焔』と『灯』がライラット王国で共同作戦を行う  
 この世界線ではクラウスは『焔』に所属、『灯』の少女たちは皆卒業して独立したチームを組んでいる  
 この世界でクラウスとグレーテのデートが行われる
@@ -70,6 +76,8 @@ tag: spyroom
 
 ## 合コン
 
+「もし白蜘蛛さんが任務で合コンに行ったら」
+
 白蜘蛛とクラウスが任務で同じ合コンの場にいたら……  
 時間軸的には第8巻・決戦後であるため、完全なifストーリー  
 
@@ -84,6 +92,8 @@ tag: spyroom
 
 ## 続・秘事
 
+『11巻冒頭の話。人生最大の幸福感に包まれ、幸せすぎていろいろと調子を崩すモニカ』
+
 第8巻〜第9巻の間のモニカの状態異常のお話  
 話的に全く矛盾していることはないため原作軸とも捉えられる
 
@@ -96,6 +106,8 @@ tag: spyroom
 
 ## 夏季
 
+『鳳メンバーが大学生だったら、それぞれ夏休みをどんな風に過ごすか』
+
 「サイゼ」の続編、というか同じ世界線  
 アーディさんも登場！
 
@@ -107,6 +119,8 @@ tag: spyroom
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「らん」さんより<br>『鳳メンバーが大学生だったら、それぞれ夏休みをどんな風に過ごすか』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/jMewoi9ChN">pic.twitter.com/jMewoi9ChN</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1981684598347387042?ref_src=twsrc%5Etfw">October 24, 2025</a></blockquote>
 
 ## 星霧
+
+『管理人レイジの日常』
 
 陽炎パレスの管理人・『星霧』のレイジ  
 焔のころから陽炎パレスを陰ながら守り続けてきたスパイ  
@@ -123,6 +137,8 @@ tag: spyroom
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「ひーちゃん」さんより　<br>『管理人レイジの日常』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/Q4zT9rbGSP">pic.twitter.com/Q4zT9rbGSP</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1984183574845853700?ref_src=twsrc%5Etfw">October 31, 2025</a></blockquote>
 
 ## 襲来
+
+『陽炎パレスに出入り自由になったニケさん』
 
 ライラット王国のスパイマスター・ニケが陽炎パレスに襲来？！  
 時系列的には暁闇計画の全貌を聞き、灯の少女たちが神樹の墓守の一員となったあとのifストーリー  
@@ -181,3 +197,39 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>毎週金曜日正午に更新🗓️<br><br>本日のSSのお題は<br>コードネーム「鳳華」さんより　<br>『もし、ギードがクラウスをビュマル王国に派遣せず蛇に勧誘していたら』<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUDHAL">https://t.co/FOLtvUDHAL</a> <a href="https://t.co/z6UWAXyQDF">pic.twitter.com/z6UWAXyQDF</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1989304112291234292?ref_src=twsrc%5Etfw">November 14, 2025</a></blockquote>
+
+## メタ
+
+『IF 灯は俳優で、「スパイ教室」は出演作品』
+
+灯たちは自分たちが活躍するドラマの撮影をしていた
+
+> 「『スパイ教室』も相当長い作品になってきたからな。ここでなければ取り上げられないキャラも増えてきた」  
+> 「皆さんの応援のおかげで生まれた物語ですね……」  
+> 「だからこそ次の撮影に進むとしよう。込められる限りの感謝と愛と共に」  
+> 新しい脚本を手に取り、クラウスは深く頷く。  
+> 物語は、とうとうクライマックスに突入する。ここまで応援してくれた視聴者のため、改めて気合を入れ直さないといけない。絶対に後悔はさせない。  
+> 「僕たちが紡いでいく物語が、誰かの人生に細やかな幸福を与えられるように」
+
+```text
+これまでの灯たちのストーリー全てが実話に基づいたドラマの脚本であり、
+過去を完全再現と謳いながら、少しばかりオーバーに描かれているというIF
+
+それぞれのキャラ付けも違うし、鳳・蛇・焔のみんなも生きている
+
+・モニカにだる絡みする意地悪なサラ
+・頬を膨らませる可愛いモニカ
+・しっかりしているクールビューティーなエルナ
+・陰気でオドオドするアネット
+・長髪でキラキラアイドル気質のジビア
+・清楚で内気なティア
+
+一方であまり変わらないキャラ（リリィ・グレーテ・クラウス）も
+
+これまでのIFストーリーもこのドラマのショートフィルムという設定
+うまくできてるなぁ、流石！
+
+最後の言葉も読者的にはとても嬉しい！今後も非常に楽しみ！！
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>昨日のSSのお題は<br>コードネーム「春樹ゆい。」さんより　<br>『IF 灯は俳優で、「スパイ教室」は出演作品』<br><br>今回のお楽しみSS企画は<br>(一旦)昨日の更新でおしまいです👏<br>ご参加いただきありがとうございました✨<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/6D9dX2a3Ak">pic.twitter.com/6D9dX2a3Ak</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1992048777319100586?ref_src=twsrc%5Etfw">November 22, 2025</a></blockquote>
