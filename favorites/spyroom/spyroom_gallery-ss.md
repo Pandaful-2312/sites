@@ -20,6 +20,7 @@ tag: spyroom
 - [12巻 万愚節のエルナ](#12巻-万愚節のエルナ)
 - [短編集1巻 花嫁ロワイヤル](#短編集1巻-花嫁ロワイヤル)
 - [短編集2巻 私を愛したスパイ先生](#短編集2巻-私を愛したスパイ先生)
+- [短編集3巻　ハネムーン・レイカー](#短編集3巻ハネムーンレイカー)
 - [その他](#その他)
 
 ## 概要
@@ -410,6 +411,16 @@ SSなし
 このリーダー、何か隠しているな……
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">モニカ　「あれ？　これ、いつのシーン？」<br>ジビア　「ちょいちょい分からんシーンがあるな」<br>グレーテ「短編ですと、皆さん、離れ離れに行動しがちですからね……」<br>リリィ　「あぁ、ムザイア合衆国での戦闘シーンですね」<br>リリィ　「わたしが働き蟻６人と闘ってい――」<br>ジビア… <a href="https://t.co/dc9Vhbh5jb">https://t.co/dc9Vhbh5jb</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1985335055523491997?ref_src=twsrc%5Etfw">November 3, 2025</a></blockquote>
+
+### 妄想
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">グレーテ「大爆笑のティアさんですね……」<br>ティア　「だって、ほぼ全員が『クラウス先生が自分を好き』と勘違いしていたんだもの」<br>サラ　　「『クラウスは、アナタを愛している』という手紙がなぜか皆に届き」<br>エルナ　「全員が信じてしまった事件なの」… <a href="https://t.co/7VnjeFGG7W">https://t.co/7VnjeFGG7W</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1994025511329435695?ref_src=twsrc%5Etfw">November 27, 2025</a></blockquote>
+
+## 短編集3巻　ハネムーン・レイカー
+
+### ファルマの懐柔
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「とうとう突入、『鳳』蜜月編！」<br>ファルマ「ねー、ファルマの回だよぉ」<br>エルナ　「唐突に登場！　ファルマお姉ちゃんなの！」<br>サラ　　「お久しぶりっす、ファルマ先輩！」<br>アネット「相変わらず予告なく現れやがりますねっ！」<br>リリィ　「はーい、このシーンの解説プリーズ」… <a href="https://t.co/F0x6lM7eAp">https://t.co/F0x6lM7eAp</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1995098491178422296?ref_src=twsrc%5Etfw">November 30, 2025</a></blockquote>
 
 ## その他
 
