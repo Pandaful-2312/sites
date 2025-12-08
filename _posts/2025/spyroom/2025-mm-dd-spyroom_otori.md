@@ -7,8 +7,6 @@ update:
 tag: spyroom
 ---
 
-<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<br>⚜️本日同時発売⚜️<br>「<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> 14《夢幻劇》のティア」<br>「<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> side『鳳』 スパイには向かない殺人」<br>＼<br><br>紙本のキャンペーン帯からご応募🙌<br>「エルナぬいぐるみ」キャンペーンも実施中✨<br><br>🔽要チェック👀<a href="https://t.co/UcNs4UC4aS">https://t.co/UcNs4UC4aS</a><a href="https://t.co/NLnsg22Ssj">https://t.co/NLnsg22Ssj</a><a href="https://twitter.com/hashtag/%E3%83%95%E3%82%A1%E3%83%B3%E3%82%BF%E3%82%B8%E3%82%A2%E6%96%87%E5%BA%AB?src=hash&amp;ref_src=twsrc%5Etfw">#ファンタジア文庫</a> <a href="https://twitter.com/hashtag/spyroom?src=hash&amp;ref_src=twsrc%5Etfw">#spyroom</a> <a href="https://t.co/0Fqr2Ju4dj">https://t.co/0Fqr2Ju4dj</a> <a href="https://t.co/c5ODFDkIUy">pic.twitter.com/c5ODFDkIUy</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1991416226841588030?ref_src=twsrc%5Etfw">November 20, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
-
 ## 感想
 
 ## まとめ
