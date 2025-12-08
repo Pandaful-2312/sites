@@ -422,6 +422,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「とうとう突入、『鳳』蜜月編！」<br>ファルマ「ねー、ファルマの回だよぉ」<br>エルナ　「唐突に登場！　ファルマお姉ちゃんなの！」<br>サラ　　「お久しぶりっす、ファルマ先輩！」<br>アネット「相変わらず予告なく現れやがりますねっ！」<br>リリィ　「はーい、このシーンの解説プリーズ」… <a href="https://t.co/F0x6lM7eAp">https://t.co/F0x6lM7eAp</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1995098491178422296?ref_src=twsrc%5Etfw">November 30, 2025</a></blockquote>
 
+### オリーブゥ…
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」… <a href="https://t.co/G0ypixmVDC">https://t.co/G0ypixmVDC</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1996207948809613525?ref_src=twsrc%5Etfw">December 3, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 ## その他
 
 ### バレンタイン
