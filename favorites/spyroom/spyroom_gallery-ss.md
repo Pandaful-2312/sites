@@ -426,6 +426,13 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」… <a href="https://t.co/G0ypixmVDC">https://t.co/G0ypixmVDC</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1996207948809613525?ref_src=twsrc%5Etfw">December 3, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+### 陽炎パレスの部屋割り
+
+一部は明かされてたけど全貌が明らかに　　
+ギードを引き継いだジビアが今後は気になるところ
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「ランちゃんでござる！」<br>エルナ　「ランお姉ちゃんでござるの！」<br>サラ　　「ラン先輩でござるっすね」<br>ヴィンド「うるさい」<br>ジビア　「……叱るほどか？」<br>ティア　「これも『鳳』との蜜月の話ね」<br>グレーテ「陽炎パレスの天井裏で官能小説が発見されて――」… <a href="https://t.co/4OFdoBEqiK">https://t.co/4OFdoBEqiK</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1998023774831325395?ref_src=twsrc%5Etfw">December 8, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
