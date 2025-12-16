@@ -424,7 +424,9 @@ SSなし
 
 ### オリーブゥ…
 
-<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」… <a href="https://t.co/G0ypixmVDC">https://t.co/G0ypixmVDC</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1996207948809613525?ref_src=twsrc%5Etfw">December 3, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」<br>アネット「…………………………………………」… <a href="https://t.co/G0ypixmVDC">https://t.co/G0ypixmVDC</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1996207948809613525?ref_src=twsrc%5Etfw">December 3, 2025</a></blockquote>
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">モニカ　「あれ？　これ、いつの出来事？」<br>ジビア　「アネットの表情が暗いな」<br>キュール「これも『鳳』と一緒の期間？」<br>ティア　「多分そうだと思うけれど……」<br><br>アネット「………………………………」<br>アネット「………………………………」<br>アネット「………………………………」<br><br>エルナ… <a href="https://t.co/G0ypixmVDC">https://t.co/G0ypixmVDC</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2000904521099387003?ref_src=twsrc%5Etfw">December 16, 2025</a></blockquote>
 
 ### 陽炎パレスの部屋割り
 
