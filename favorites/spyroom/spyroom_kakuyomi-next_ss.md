@@ -233,3 +233,42 @@ tag: spyroom
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画更新🥳<br>＼<br><br>昨日のSSのお題は<br>コードネーム「春樹ゆい。」さんより　<br>『IF 灯は俳優で、「スパイ教室」は出演作品』<br><br>今回のお楽しみSS企画は<br>(一旦)昨日の更新でおしまいです👏<br>ご参加いただきありがとうございました✨<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a> <a href="https://t.co/6D9dX2a3Ak">pic.twitter.com/6D9dX2a3Ak</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1992048777319100586?ref_src=twsrc%5Etfw">November 22, 2025</a></blockquote>
+
+## 幽閉
+
+まさかのExtraステージに突入！  
+書店フェアのために作成された没案らしい  
+いろんな作品が「○○○○しないと出られない部屋」というお題で描かれたが竹町先生が選んだのは…
+
+```text
+かなり王道の展開ではあるが…
+灯ではティア（とグレーテ）意外にあまりにも耐性がない部屋
+
+当たり前のようにノリノリのティアと振り回されるその他のメンバー
+リリィ・モニカを守るために何かを失った（得た）サラ
+なぜかクラウスも巻き込まれており、常在菌とし始める始末…
+
+最終的にはリリモニではない別の百合で締めくくられた
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>ExtraSSは金曜日正午に<br>隔週で更新予定です✨<br><br>本日のSSお題は<br>「○○○○しないと出られない部屋」<br>（書店フェア版とは異なる内容です）<br><br>🔽今すぐ読む📚<a href="https://t.co/FOLtvUEfqj">https://t.co/FOLtvUEfqj</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/1996887204019556635?ref_src=twsrc%5Etfw">December 5, 2025</a></blockquote>
+
+## アイドル
+
+Extra第2弾　　
+
+ムザイア合衆国のエンタメ業界に潜入するためにアイドルになる灯の少女たち　　
+もちろんまともにオーディションに参加するわけではなく、裏工作でオーディションを突破　　
+しかし、連携してアイドルパフォーマンスができるわけもなく…
+
+```text
+かなり多くの人から求められていたアイドル灯少女隊
+
+リリィ・アネットは真面目にできれば順当に似合いそう　　
+ジビア・モニカはイケメン、エルナ・サラは清楚＆小動物系で人気でそう
+ティアはアイドルになれるのか…？グレーテは…
+
+是非ともイラスト化・グッズ化して欲しいね
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>ExtraSSは金曜日正午に隔週で更新✨<br>スパイ教室【短編】ページにて無料で読めます🙌<br><br>本日のSSタイトルは<br>『アイドル』<br><br>🔽今すぐ読む👑<a href="https://t.co/PaSUpVtF0m">https://t.co/PaSUpVtF0m</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/2001955678035103823?ref_src=twsrc%5Etfw">December 19, 2025</a></blockquote>
