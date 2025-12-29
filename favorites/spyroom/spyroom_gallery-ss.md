@@ -442,3 +442,7 @@ SSなし
 とある人物のチョココンプリート戦略…
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">まずクラウスからチョコをもらい、そのチョコ半分をグレーテに差し出す条件に、大量のチョコをもらう。大量チョコをリリィに渡して、お返しのチョコをもらい、そのチョコ半分を条件にモニカと交渉。モニカからチョコをもらい、かつ、ティアからチョコを強奪してもらう。モニカチョコ半分とティアチョコ… <a href="https://t.co/OyvF6ldcNL">https://t.co/OyvF6ldcNL</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1890391254816657439?ref_src=twsrc%5Etfw">February 14, 2025</a></blockquote>
+
+### クリスマス
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「お気に入りのクッキー」<br>グレーテ「常に持ち歩いてほしいハンカチ」<br>エルナ　「一緒に遊んでほしいボードゲーム」<br>アネット「ビックリ箱（火薬入り）」<br>ジビア　「お互い頑張ろうぜの万年筆」<br>サラ　　「動物の彫刻入りスプーン＆フォーク」<br>ティア　「高価なお揃いピアス」<br>モニカ… <a href="https://t.co/6VM5utpg8z">https://t.co/6VM5utpg8z</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2004170435509080124?ref_src=twsrc%5Etfw">December 25, 2025</a></blockquote>
