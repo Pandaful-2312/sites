@@ -110,7 +110,7 @@ updata:
 
 ## トップアルバム
 
-![トップアルバムTop15]({{site.baseurl}}/pic/posts/20251231/top-salbam.PNG)
+![トップアルバムTop15]({{site.baseurl}}/pic/posts/20251231/top-albam.PNG)
 
 基本はアルバム単位で聞かないのでトップソングに上がっていないものが多い
 
