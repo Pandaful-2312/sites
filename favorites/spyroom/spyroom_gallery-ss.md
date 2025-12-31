@@ -435,6 +435,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「ランちゃんでござる！」<br>エルナ　「ランお姉ちゃんでござるの！」<br>サラ　　「ラン先輩でござるっすね」<br>ヴィンド「うるさい」<br>ジビア　「……叱るほどか？」<br>ティア　「これも『鳳』との蜜月の話ね」<br>グレーテ「陽炎パレスの天井裏で官能小説が発見されて――」… <a href="https://t.co/4OFdoBEqiK">https://t.co/4OFdoBEqiK</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1998023774831325395?ref_src=twsrc%5Etfw">December 8, 2025</a></blockquote>
 
+### 人間投石機
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「お、人間投石器で『鳳』を粉砕した時ですね」<br>ティア　「字面だけで伝わるヤバさね」<br>クノー　「……是。死ぬだろ」<br>キュール「推定50㎏の塊！！」<br>ファルマ「主にビックス君が受け止めたんだよねぇ」<br>サラ　　「逆になぜ無事なのか知りたいっす！」<br>ビックス「ぼくが頑張ったからですが⁉」… <a href="https://t.co/Uel45wPgqK">https://t.co/Uel45wPgqK</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2005642415059988592?ref_src=twsrc%5Etfw">December 29, 2025</a></blockquote>
+
 ## その他
 
 ### バレンタイン
