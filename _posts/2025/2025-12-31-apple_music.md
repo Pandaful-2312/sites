@@ -6,7 +6,7 @@ date: 2025-12-31
 updata: 2026-01-05
 ---
 
-年末恒例のApple Musicの2025年の振り返り
+年末恒例のApple Musicの2025年の振り返り  
 ※Apple MusicはCDの音源の集計ができないため追加で集計
 
 ## トップアーティスト
@@ -42,7 +42,7 @@ updata: 2026-01-05
 
 4位はカンナ（CV.長縄まりあ）！  
 こちらもメイドラゴン関連！  
-すべて「僕たちの日々」で稼いでいる
+すべてを「僕たちの日々」だけで稼いでいる
 
 5位はTRUE！  
 こちらもユーフォにハマったためOPをひたすら聴いていた
@@ -61,6 +61,7 @@ updata: 2026-01-05
 
 9位は北宇治カルテット！  
 こちらも9月ぐらいにハマったユーフォのグループ  
+どの曲も同じぐらい好き
 
 10位は安野さん！  
 昨年からは大きく順位を落としたけどランクイン！  
@@ -123,7 +124,7 @@ updata: 2026-01-05
 ![月別トップアーティスト]({{site.baseurl}}/pic/posts/20251231/monthly-artist.jpeg)
 
 水瀬いのり→あいみょん（ドラえもん）→メイドラゴン→ユーフォ→フリーレン  
-と個人的はやりが一目瞭然の結果に
+個人的流行りが一目瞭然の結果に
 
 その他、各月の詳細は以下の詳細画像の項目に
 
@@ -149,10 +150,4 @@ updata: 2026-01-05
 
 ### 各月の詳細
 
-![1月]({{site.baseurl}}/pic/posts/20251231/m1.PNG)![2月]({{site.baseurl}}/pic/posts/20251231/m2.PNG)![3月]({{site.baseurl}}/pic/posts/20251231/m3.PNG)
-
-![4月]({{site.baseurl}}/pic/posts/20251231/m4.PNG)![5月]({{site.baseurl}}/pic/posts/20251231/m5.PNG)![6月]({{site.baseurl}}/pic/posts/20251231/m6.PNG)
-
-![7月]({{site.baseurl}}/pic/posts/20251231/m7.PNG)![8月]({{site.baseurl}}/pic/posts/20251231/m8.PNG)![9月]({{site.baseurl}}/pic/posts/20251231/m9.PNG)
-
-![10月]({{site.baseurl}}/pic/posts/20251231/m10.PNG)![11月]({{site.baseurl}}/pic/posts/20251231/m11.PNG)![12月]({{site.baseurl}}/pic/posts/20251231/m12.PNG)
+![1月]({{site.baseurl}}/pic/posts/20251231/m1.PNG)![2月]({{site.baseurl}}/pic/posts/20251231/m2.PNG)![3月]({{site.baseurl}}/pic/posts/20251231/m3.PNG)![4月]({{site.baseurl}}/pic/posts/20251231/m4.PNG)![5月]({{site.baseurl}}/pic/posts/20251231/m5.PNG)![6月]({{site.baseurl}}/pic/posts/20251231/m6.PNG)![7月]({{site.baseurl}}/pic/posts/20251231/m7.PNG)![8月]({{site.baseurl}}/pic/posts/20251231/m8.PNG)![9月]({{site.baseurl}}/pic/posts/20251231/m9.PNG)![10月]({{site.baseurl}}/pic/posts/20251231/m10.PNG)![11月]({{site.baseurl}}/pic/posts/20251231/m11.PNG)![12月]({{site.baseurl}}/pic/posts/20251231/m12.PNG)
