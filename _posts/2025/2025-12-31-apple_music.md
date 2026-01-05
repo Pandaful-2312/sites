@@ -3,7 +3,7 @@ layout: post
 title: 2025年 Apple Music 集計
 category: other
 date: 2025-12-31
-updata: 
+updata: 2026-01-05
 ---
 
 年末恒例のApple Musicの2025年の振り返り
@@ -13,9 +13,9 @@ updata:
 
 ![トップアーティストTop15]({{site.baseurl}}/pic/posts/20251231/top-artist.PNG)
 
-| 順位 | アーティスト | 試聴時間（分） |
-| -: | - | -:|
-|1 |スーパーちょろゴンず | 1549|
+|順位|アーティスト|試聴時間（分）|
+|-:|-|-:|
+|1|スーパーちょろゴンず|1549|
 |2|水瀬いのり|1336|
 |3|中野家の五つ子|1055|
 |4|カンナ（CV.長縄まりあ）|780|
@@ -70,8 +70,8 @@ updata:
 
 ![トップソングTop15]({{site.baseurl}}/pic/posts/20251231/top-song.PNG)
 
-| 順位 | 楽曲 | 試聴回数 |
-| -: | - | -:|
+|順位|楽曲|試聴回数|
+|-:|-|-:|
 |1|めいど・うぃず・どらごんず❤︎|219|
 |2|LOVE iLLUSION #502 ver|150|
 |3|スケッチ|139|
@@ -119,8 +119,13 @@ updata:
 
 ## 月別集計
 
-![月別トップソング]({{site.baseurl}}/pic/posts/20251231/monthly-song.PNG)
-![月別トップアーティスト]({{site.baseurl}}/pic/posts/20251231/monthly-artist.PNG)
+![月別トップソング]({{site.baseurl}}/pic/posts/20251231/monthly-song.jpeg)
+![月別トップアーティスト]({{site.baseurl}}/pic/posts/20251231/monthly-artist.jpeg)
+
+水瀬いのり→あいみょん（ドラえもん）→メイドラゴン→ユーフォ→フリーレン  
+と個人的はやりが一目瞭然の結果に
+
+その他、各月の詳細は以下の詳細画像の項目に
 
 ## 詳細画像
 
@@ -141,3 +146,13 @@ updata:
 ![トップアルバム詳細1]({{site.baseurl}}/pic/posts/20251231/top-albam_1.jpg)
 ![トップアルバム詳細2]({{site.baseurl}}/pic/posts/20251231/top-albam_2.jpg)
 ![トップアルバム詳細3]({{site.baseurl}}/pic/posts/20251231/top-albam_3.jpg)
+
+### 各月の詳細
+
+![1月]({{site.baseurl}}/pic/posts/20251231/m1.PNG)![2月]({{site.baseurl}}/pic/posts/20251231/m2.PNG)![3月]({{site.baseurl}}/pic/posts/20251231/m3.PNG)
+
+![4月]({{site.baseurl}}/pic/posts/20251231/m4.PNG)![5月]({{site.baseurl}}/pic/posts/20251231/m5.PNG)![6月]({{site.baseurl}}/pic/posts/20251231/m6.PNG)
+
+![7月]({{site.baseurl}}/pic/posts/20251231/m7.PNG)![8月]({{site.baseurl}}/pic/posts/20251231/m8.PNG)![9月]({{site.baseurl}}/pic/posts/20251231/m9.PNG)
+
+![10月]({{site.baseurl}}/pic/posts/20251231/m10.PNG)![11月]({{site.baseurl}}/pic/posts/20251231/m11.PNG)![12月]({{site.baseurl}}/pic/posts/20251231/m12.PNG)
