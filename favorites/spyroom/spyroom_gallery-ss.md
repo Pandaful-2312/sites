@@ -439,6 +439,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「お、人間投石器で『鳳』を粉砕した時ですね」<br>ティア　「字面だけで伝わるヤバさね」<br>クノー　「……是。死ぬだろ」<br>キュール「推定50㎏の塊！！」<br>ファルマ「主にビックス君が受け止めたんだよねぇ」<br>サラ　　「逆になぜ無事なのか知りたいっす！」<br>ビックス「ぼくが頑張ったからですが⁉」… <a href="https://t.co/Uel45wPgqK">https://t.co/Uel45wPgqK</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2005642415059988592?ref_src=twsrc%5Etfw">December 29, 2025</a></blockquote>
 
+### 火の鳥
+
+14巻が出た後にこれをみると…
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">キュール「湿っぽい話禁止で‼‼」<br>エルナ　「先に封じられたの！」<br>ヴィンド「お前にしては良い提案だ」<br>リリィ　「そ、そんな感じでよろしいのなら」<br>ジビア　「またスポーツでもするか？」<br>ティア　「いや、最低限、振り返りはしなさいよ」<br>ファルマ「じゃあ、グレーテちゃん。おねがぁい」… <a href="https://t.co/60YP1xEM23">https://t.co/60YP1xEM23</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2008515540365832215?ref_src=twsrc%5Etfw">January 6, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
