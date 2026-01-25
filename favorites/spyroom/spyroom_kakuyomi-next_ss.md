@@ -25,6 +25,8 @@ tag: spyroom
 - [メタ](#メタ)
 - [幽閉](#幽閉)
 - [アイドル](#アイドル)
+- [性転換](#性転換)
+- [モニカ詰め合わせ](#モニカ詰め合わせ)
 
 ## サイゼ
 
@@ -285,3 +287,42 @@ Extra第2弾　　
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>ExtraSSは金曜日正午に隔週で更新✨<br>スパイ教室【短編】ページにて無料で読めます🙌<br><br>本日のSSタイトルは<br>『アイドル』<br><br>🔽今すぐ読む👑<a href="https://t.co/PaSUpVtF0m">https://t.co/PaSUpVtF0m</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/2001955678035103823?ref_src=twsrc%5Etfw">December 19, 2025</a></blockquote>
+
+## 性転換
+
+Extra 第3弾
+
+もし、灯の性別が逆だったら…？
+
+```text
+リリィ・ジビア・モニカはあまり変わらず脳筋
+ティア・グレーテも相変わらずの調子
+サラは好青年なまとめ役で
+エルナ・アネットは喧嘩する
+
+あまり変わらないのでは…
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>ExtraSSは金曜日正午に隔週で更新✨<br>スパイ教室【短編】ページにて無料で読めます🙌<br><br>本日のSSタイトルは<br>『性転換』<br><br>🔽今すぐ読む👑<a href="https://t.co/dnQfYcRCol">https://t.co/dnQfYcRCol</a> <a href="https://t.co/kmla3cL1u3">pic.twitter.com/kmla3cL1u3</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/2009611114179399811?ref_src=twsrc%5Etfw">January 9, 2026</a></blockquote>
+
+## モニカ詰め合わせ
+
+Extra 第4弾 要望が多かったモニカ詰め合わせ回
+
+- 『もしもモニカが灯のボスになったら』
+- 『ティア、ハイジさん、ニケさんに挟まれるモニカ』
+- 『ニケ、翠蝶、ティア、ファルマ、ハイジに滅茶苦茶にされるモニカ』
+- 『もしモニカがハーモニカを吹いていたら』
+- 『モニカが風邪を引く話』
+- 『もしモニカがメイド、もしくは執事にならないといけない任務があったら』
+- 『マテルがモニカと再会して弟子入りしたら』
+- 『「髪切ったんですね、似合ってます」とリリィに言われた、1ミリも切ってない気まずすぎるモニカ』
+- 『もしモニカが「灯」全員を口説いたらどうなるか？』
+
+```text
+さすが人気投票1位の女、愛されている
+
+痴女パーティーが地獄すぎておもろい
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>ExtraSSは金曜日正午に隔週で更新✨<br>スパイ教室【短編】ページにて無料で読めます🙌<br><br>先週更新されたSSタイトルは<br>『モニカ詰め合わせ』<br><br>――『モニカ詰め合わせ』です。<br><br>🔽今すぐ読む👑<a href="https://t.co/DbpIhREzSN">https://t.co/DbpIhREzSN</a> <a href="https://t.co/LdaUS09r3h">pic.twitter.com/LdaUS09r3h</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/2014625747227574736?ref_src=twsrc%5Etfw">January 23, 2026</a></blockquote>

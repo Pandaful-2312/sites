@@ -445,6 +445,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">キュール「湿っぽい話禁止で‼‼」<br>エルナ　「先に封じられたの！」<br>ヴィンド「お前にしては良い提案だ」<br>リリィ　「そ、そんな感じでよろしいのなら」<br>ジビア　「またスポーツでもするか？」<br>ティア　「いや、最低限、振り返りはしなさいよ」<br>ファルマ「じゃあ、グレーテちゃん。おねがぁい」… <a href="https://t.co/60YP1xEM23">https://t.co/60YP1xEM23</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2008515540365832215?ref_src=twsrc%5Etfw">January 6, 2026</a></blockquote>
 
+### やさぐれMaxリリィ
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「ん？　これは、どういうシーンなの？」<br>ジビア　「『鳳』からの置き土産（宿題）か」<br>アネット「この間、俺様たちバラバラでしたもんねっ！」<br>グレーテ「はい。ですのでリリィさん、解説をお願いします……」<br>ティア　「確かアナタは、養成学校に戻ったのよね？」<br>モニカ… <a href="https://t.co/zpYywdvm5Z">https://t.co/zpYywdvm5Z</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2014682537755607459?ref_src=twsrc%5Etfw">January 23, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
