@@ -449,6 +449,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「ん？　これは、どういうシーンなの？」<br>ジビア　「『鳳』からの置き土産（宿題）か」<br>アネット「この間、俺様たちバラバラでしたもんねっ！」<br>グレーテ「はい。ですのでリリィさん、解説をお願いします……」<br>ティア　「確かアナタは、養成学校に戻ったのよね？」<br>モニカ… <a href="https://t.co/zpYywdvm5Z">https://t.co/zpYywdvm5Z</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2014682537755607459?ref_src=twsrc%5Etfw">January 23, 2026</a></blockquote>
 
+### 『灯』 尊妹コンテスト
+
+もちろんあの人が優勝
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「『鳳』課題part2だな」<br>リリィ　「これはどういう課題なんです？」<br>サラ　　「教えてほしいっす、ティア先輩」<br>ティア　「ズバリ――妹修行編ね」<br>モニカ　「分からん、分からん」<br>ティア　「今まで私の色仕掛けと言えば、『セクシーお姉さん』or『小悪魔優等生』の二択だったけれど」<br>エルナ… <a href="https://t.co/83WkAzSObq">https://t.co/83WkAzSObq</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2019397681786024280?ref_src=twsrc%5Etfw">February 5, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
