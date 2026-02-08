@@ -27,6 +27,7 @@ tag: spyroom
 - [アイドル](#アイドル)
 - [性転換](#性転換)
 - [モニカ詰め合わせ](#モニカ詰め合わせ)
+- [運動会](#運動会)
 
 ## サイゼ
 
@@ -326,3 +327,18 @@ Extra 第4弾 要望が多かったモニカ詰め合わせ回
 ```
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>ExtraSSは金曜日正午に隔週で更新✨<br>スパイ教室【短編】ページにて無料で読めます🙌<br><br>先週更新されたSSタイトルは<br>『モニカ詰め合わせ』<br><br>――『モニカ詰め合わせ』です。<br><br>🔽今すぐ読む👑<a href="https://t.co/DbpIhREzSN">https://t.co/DbpIhREzSN</a> <a href="https://t.co/LdaUS09r3h">pic.twitter.com/LdaUS09r3h</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/2014625747227574736?ref_src=twsrc%5Etfw">January 23, 2026</a></blockquote>
+
+## 運動会
+
+Extra 第5弾 灯・焔・鳳 スパイ3チームによる運動会
+
+```text
+・武闘派の赤組：クラウス・ギード・ゲルデ・モニカ・ジビア・ビックス・ヴィンド
+・知性派の白組：フェロニカ・ルーカス・ヴィレ・ティア・グレーテ・ファルマ・クノー
+・搾りかすの青組：アーディ・ハイジ・リリィ・サラ・アネット・エルナ・ラン・キュール
+
+リリィの作戦は結果的になきものになったが、リリィも策士だったか
+相変わらず何を考えているのかわからない…
+```
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">／<a href="https://twitter.com/hashtag/%E3%82%B9%E3%83%91%E3%82%A4%E6%95%99%E5%AE%A4?src=hash&amp;ref_src=twsrc%5Etfw">#スパイ教室</a> お楽しみSS企画延長戦🥳<br>＼<br><br>スパイ教室【短編】ページにて無料で読めます🙌<br><br>本日更新のSSタイトルは<br>🚩『運動会』🚩<br><br>🔽今すぐ読む<a href="https://t.co/s2sJdsRh4v">https://t.co/s2sJdsRh4v</a><br><br>今回の更新でお楽しみSS企画は<br>一旦おしまいです👏<br>たくさんのSSテーマ案をご提案いただき<br>ありがとうございました🙌… <a href="https://t.co/CNlkYWNDDP">pic.twitter.com/CNlkYWNDDP</a></p>&mdash; 『スパイ教室』公式 (@spy_tomoshibi) <a href="https://twitter.com/spy_tomoshibi/status/2019729229643194402?ref_src=twsrc%5Etfw">February 6, 2026</a></blockquote>
