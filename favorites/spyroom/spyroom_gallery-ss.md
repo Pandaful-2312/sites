@@ -21,6 +21,7 @@ tag: spyroom
 - [短編集1巻 花嫁ロワイヤル](#短編集1巻-花嫁ロワイヤル)
 - [短編集2巻 私を愛したスパイ先生](#短編集2巻-私を愛したスパイ先生)
 - [短編集3巻　ハネムーン・レイカー](#短編集3巻ハネムーンレイカー)
+- [短編集4巻 NO TIME TO 退](#短編集4巻-no-time-to-退)
 - [その他](#その他)
 
 ## 概要
@@ -445,6 +446,8 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">キュール「湿っぽい話禁止で‼‼」<br>エルナ　「先に封じられたの！」<br>ヴィンド「お前にしては良い提案だ」<br>リリィ　「そ、そんな感じでよろしいのなら」<br>ジビア　「またスポーツでもするか？」<br>ティア　「いや、最低限、振り返りはしなさいよ」<br>ファルマ「じゃあ、グレーテちゃん。おねがぁい」… <a href="https://t.co/60YP1xEM23">https://t.co/60YP1xEM23</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2008515540365832215?ref_src=twsrc%5Etfw">January 6, 2026</a></blockquote>
 
+## 短編集4巻 NO TIME TO 退
+
 ### やさぐれMaxリリィ
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「ん？　これは、どういうシーンなの？」<br>ジビア　「『鳳』からの置き土産（宿題）か」<br>アネット「この間、俺様たちバラバラでしたもんねっ！」<br>グレーテ「はい。ですのでリリィさん、解説をお願いします……」<br>ティア　「確かアナタは、養成学校に戻ったのよね？」<br>モニカ… <a href="https://t.co/zpYywdvm5Z">https://t.co/zpYywdvm5Z</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2014682537755607459?ref_src=twsrc%5Etfw">January 23, 2026</a></blockquote>
@@ -454,6 +457,12 @@ SSなし
 もちろんあの人が優勝
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ジビア　「『鳳』課題part2だな」<br>リリィ　「これはどういう課題なんです？」<br>サラ　　「教えてほしいっす、ティア先輩」<br>ティア　「ズバリ――妹修行編ね」<br>モニカ　「分からん、分からん」<br>ティア　「今まで私の色仕掛けと言えば、『セクシーお姉さん』or『小悪魔優等生』の二択だったけれど」<br>エルナ… <a href="https://t.co/83WkAzSObq">https://t.co/83WkAzSObq</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2019397681786024280?ref_src=twsrc%5Etfw">February 5, 2026</a></blockquote>
+
+### アメリさん
+
+愛国心はあるのか…
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「アメリさんなの！」<br>ジビア　「ん、アメリさんか」<br>リリィ　「アメリさん……実は、接点が多くない」<br>ティア　「はい。じゃあ、解説お願い、グレーテ」<br>グレーテ「フェンド連邦の諜報機関『ＣＩＭ』の方ですね……」<br>グレーテ「彼女は、『べリアス』のボス……」… <a href="https://t.co/GalE5TIzp0">https://t.co/GalE5TIzp0</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2022291688342040765?ref_src=twsrc%5Etfw">February 13, 2026</a></blockquote>
 
 ## その他
 
