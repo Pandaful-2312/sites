@@ -208,7 +208,8 @@ OPは鈴木雅之 feat. 高城れに「Love is Show」
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/e1P5WxxMBmE?si=VBvElwzbfI_ttEqW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-EDは鈴木愛理「heart notes」
+EDは鈴木愛理「heart notes」  
+ちょっと悲しい感じがする曲調
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Jk6S15iIgxc?si=9Ws1DavlKImPm7XP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
@@ -234,6 +235,37 @@ EDは鈴木愛理「heart notes」
 白銀父のYouTuber計画  
 めちゃくちゃ上手くいって収益化・スパチャざっくざく  
 いけない稼ぎ方を覚えた圭ちゃん
+
+#### お家訪問
+
+早坂がいなくなった四宮家  
+寂しくなったかぐやを新居に招く会長
+
+男女が一つ屋根の下  
+何も起きないはずがなく…
+
+ﾁｭﾝﾁｭﾝ
+
+早坂と友達の関係になってるのがいいねぇ
+
+#### 会長の旅立ち
+
+大寝坊をかますかぐや  
+泣きながらカリフォルニアにお別れを言いにいくかぐや
+
+それぞれの形でお別れを言うメンバー  
+シンプルな早坂、涙を浮かべる眞妃・伊井野・藤原、さっぱりな石上  
+石上とのこのかっこいいけどさっぱりしてる関係なのがいいよねぇ
+
+#### ラスト
+
+アルバムを集めていたのはタイムマシンのような謎の機械のサンプルにするため  
+大人になった彼・彼女らに待ち受けるものとは？
+
+大人の石上かっこいい〜  
+タイムマシンみたいなもので今までの振り返りをしにいくのか？  
+映画とこのアニメとの間の原作エピソードもかなり吹っ飛ばしてるからそこもアニメ化するのか？  
+いつになるかわからんが楽しみだねぇ
 
 ## キャラ
 
