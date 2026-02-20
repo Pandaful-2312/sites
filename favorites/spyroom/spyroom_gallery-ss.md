@@ -464,6 +464,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">エルナ　「アメリさんなの！」<br>ジビア　「ん、アメリさんか」<br>リリィ　「アメリさん……実は、接点が多くない」<br>ティア　「はい。じゃあ、解説お願い、グレーテ」<br>グレーテ「フェンド連邦の諜報機関『ＣＩＭ』の方ですね……」<br>グレーテ「彼女は、『べリアス』のボス……」… <a href="https://t.co/GalE5TIzp0">https://t.co/GalE5TIzp0</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2022291688342040765?ref_src=twsrc%5Etfw">February 13, 2026</a></blockquote>
 
+### モニカの改心
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「……目にゴミでも？」<br>ジビア　「……花粉症かな？」<br>サラ　　「大変っすね、モニカ先輩」<br>エルナ　「きっと花粉がすごかったの」<br><br>モニカ　「気を遣われる方が嫌なんだけどぉ⁉」<br><br>ティア　「じゃあ、さっさと解説しなさいよ」<br>アネット「モニカの姉貴、ガチ泣きですねっ」… <a href="https://t.co/BeODSWM0dv">https://t.co/BeODSWM0dv</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2024474453003161853?ref_src=twsrc%5Etfw">February 19, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
