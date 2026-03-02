@@ -468,6 +468,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「……目にゴミでも？」<br>ジビア　「……花粉症かな？」<br>サラ　　「大変っすね、モニカ先輩」<br>エルナ　「きっと花粉がすごかったの」<br><br>モニカ　「気を遣われる方が嫌なんだけどぉ⁉」<br><br>ティア　「じゃあ、さっさと解説しなさいよ」<br>アネット「モニカの姉貴、ガチ泣きですねっ」… <a href="https://t.co/BeODSWM0dv">https://t.co/BeODSWM0dv</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2024474453003161853?ref_src=twsrc%5Etfw">February 19, 2026</a></blockquote>
 
+### 大ラン闘
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ラン　　「超感動シーンでござる」<br>ジビア　「自分でなに言ってんだ？」<br>リリィ　「ただただ我々が巻き込まれた回！」<br>ティア　「じゃ、今回はランが解説お願い」<br>ラン　　「フェンド連邦任務後の一幕でござるな」<br>ラン　　「心折れて、引退を考えていた自分が――」<br>ラン… <a href="https://t.co/DyupJRxjlr">https://t.co/DyupJRxjlr</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2028094232876155326?ref_src=twsrc%5Etfw">March 1, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
