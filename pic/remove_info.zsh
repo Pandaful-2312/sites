@@ -1,0 +1,2 @@
+#!/bin/zsh
+exiftool  -r -all= -tagsfromfile @ -datetimeoriginal -orientation -colorspace -icc_profile -overwrite_original .

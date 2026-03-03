@@ -120,8 +120,8 @@ updata: 2026-01-05
 
 ## 月別集計
 
-![月別トップソング]({{site.baseurl}}/pic/posts/20251231/monthly-song.jpeg)
-![月別トップアーティスト]({{site.baseurl}}/pic/posts/20251231/monthly-artist.jpeg)
+![月別トップソング]({{site.baseurl}}/pic/posts/20251231/monthly-song.jpg)
+![月別トップアーティスト]({{site.baseurl}}/pic/posts/20251231/monthly-artist.jpg)
 
 水瀬いのり→あいみょん（ドラえもん）→メイドラゴン→ユーフォ→フリーレン  
 個人的流行りが一目瞭然の結果に
