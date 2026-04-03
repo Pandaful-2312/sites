@@ -22,6 +22,7 @@ tag: spyroom
 - [短編集2巻 私を愛したスパイ先生](#短編集2巻-私を愛したスパイ先生)
 - [短編集3巻　ハネムーン・レイカー](#短編集3巻ハネムーンレイカー)
 - [短編集4巻 NO TIME TO 退](#短編集4巻-no-time-to-退)
+- [短編集5巻　『焔』より愛をこめて](#短編集5巻焔より愛をこめて)
 - [その他](#その他)
 
 ## 概要
@@ -471,6 +472,14 @@ SSなし
 ### 大ラン闘
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ラン　　「超感動シーンでござる」<br>ジビア　「自分でなに言ってんだ？」<br>リリィ　「ただただ我々が巻き込まれた回！」<br>ティア　「じゃ、今回はランが解説お願い」<br>ラン　　「フェンド連邦任務後の一幕でござるな」<br>ラン　　「心折れて、引退を考えていた自分が――」<br>ラン… <a href="https://t.co/DyupJRxjlr">https://t.co/DyupJRxjlr</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2028094232876155326?ref_src=twsrc%5Etfw">March 1, 2026</a></blockquote>
+
+## 短編集5巻　『焔』より愛をこめて
+
+### クラウスとの出会い
+
+よりによってここにクラウスいないのか…
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「………………」<br>グレーテ「………………」<br>ジビア　「………………」<br>モニカ　「………………」<br>エルナ　「とうとう来てしまったの」<br>ティア　「えぇ、いよいよクラウス先生の過去編だけど」<br>サラ　　「なぜか、この振り返りRADIOに一切姿を現さなくなったっすね……」<br>ジビア… <a href="https://t.co/EvLjki3lb3">https://t.co/EvLjki3lb3</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2039684259137691794?ref_src=twsrc%5Etfw">April 2, 2026</a></blockquote>
 
 ## その他
 
