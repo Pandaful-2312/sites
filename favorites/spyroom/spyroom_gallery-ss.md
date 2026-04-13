@@ -485,6 +485,10 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ティア　「引き続き、クラウス先生の過去編ね」<br>リリィ　「見たところ、先生が過去に所蔵していたスパイチーム『焔』の話」<br>ジビア　「当時のボス、『紅炉』のフェロニカと」<br>モニカ　「姉貴分・『煽惑』のハイジとの会話か……」<br>エルナ　「解説は『焔』メンバー・ルーカスさんなの」… <a href="https://t.co/gJoRyYlScW">https://t.co/gJoRyYlScW</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2042222137273201122?ref_src=twsrc%5Etfw">April 9, 2026</a></blockquote>
 
+### なんやかんや
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「本気モード・ハイジさんですね」<br>アネット「なんか、コイツの登場回数多くねぇです？」<br>グレーテ「……前回のシーンにも描かれましたね」<br>ティア　「そりゃあ、ねぇ……」<br>モニカ　「うん、きっとそう」<br>サラ　　「どういうことっす？」<br>ジビア　「クラウス少年期のヒロイン的立場なんだろ」… <a href="https://t.co/4unIHiS33H">https://t.co/4unIHiS33H</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2043668041951842640?ref_src=twsrc%5Etfw">April 13, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
