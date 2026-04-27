@@ -489,6 +489,13 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「本気モード・ハイジさんですね」<br>アネット「なんか、コイツの登場回数多くねぇです？」<br>グレーテ「……前回のシーンにも描かれましたね」<br>ティア　「そりゃあ、ねぇ……」<br>モニカ　「うん、きっとそう」<br>サラ　　「どういうことっす？」<br>ジビア　「クラウス少年期のヒロイン的立場なんだろ」… <a href="https://t.co/4unIHiS33H">https://t.co/4unIHiS33H</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2043668041951842640?ref_src=twsrc%5Etfw">April 13, 2026</a></blockquote>
 
+### 洗脳
+
+陽炎パレス破壊事件にも言及…  
+すまねぇなルーカス
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ティア　「フェロニカさんからのメッセージね」<br>アネット「なにかを伝えているようですっ」<br>エルナ　「きっと大切な感情なの」<br>リリィ　「先代『焔』のボスから、先生への想い」<br>グレーテ「……一体どのような感情が気になりま――」<br>ルーカス「ただの洗脳シーンです」<br>ジビア　「台無しだよ！」<br>モニカ… <a href="https://t.co/tCYvlGWjvP">https://t.co/tCYvlGWjvP</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2048741210093965713?ref_src=twsrc%5Etfw">April 27, 2026</a></blockquote>
+
 ## その他
 
 ### バレンタイン
