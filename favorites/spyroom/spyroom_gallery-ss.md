@@ -18,6 +18,7 @@ tag: spyroom
 - [10巻 高天原 サラ](#10巻-高天原-サラ)
 - [11巻 付焼刃のモニカ](#11巻-付焼刃のモニカ)
 - [12巻 万愚節のエルナ](#12巻-万愚節のエルナ)
+- [13巻　夢幻劇のティア](#13巻夢幻劇のティア)
 - [短編集1巻 花嫁ロワイヤル](#短編集1巻-花嫁ロワイヤル)
 - [短編集2巻 私を愛したスパイ先生](#短編集2巻-私を愛したスパイ先生)
 - [短編集3巻　ハネムーン・レイカー](#短編集3巻ハネムーンレイカー)
@@ -347,6 +348,12 @@ SSなし
 いいねぇいいねぇ
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「革命任務のラストシーンですね」<br>ジビア　「もはや背中から刺すと言えば、この女」<br>モニカ　「肋骨の隙間を完璧に狙う者」<br>グレーテ「ギードさんに引き続き、二回目ですね……！」<br>エルナ　「エルナ、大活躍なの！」<br>サラ　　「なんで駆け付けられたんです？」<br>エルナ… <a href="https://t.co/Rd9DCqSn5i">https://t.co/Rd9DCqSn5i</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/1957437113231982611?ref_src=twsrc%5Etfw">August 18, 2025</a></blockquote>
+
+## 13巻　夢幻劇のティア
+
+### フェロニカ
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ティア　「またもやフェロニカさん！」<br>モニカ　「いかつい表情しているね」<br>サラ　　「か、過去編が終わったと思ったら、また過去編が始まっている……⁉」<br>リリィ　「か、解説役プリーズ！」<br>ジビア　「なんでルーカスさん、帰らせたんだよ⁉」<br>グレーテ「前回でキリがよかったせいで……」… <a href="https://t.co/O4rq7nLsfL">https://t.co/O4rq7nLsfL</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2053088767892922405?ref_src=twsrc%5Etfw">May 9, 2026</a></blockquote>
 
 ## 短編集1巻 花嫁ロワイヤル
 
