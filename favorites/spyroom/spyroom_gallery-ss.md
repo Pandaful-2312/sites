@@ -355,6 +355,12 @@ SSなし
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">ティア　「またもやフェロニカさん！」<br>モニカ　「いかつい表情しているね」<br>サラ　　「か、過去編が終わったと思ったら、また過去編が始まっている……⁉」<br>リリィ　「か、解説役プリーズ！」<br>ジビア　「なんでルーカスさん、帰らせたんだよ⁉」<br>グレーテ「前回でキリがよかったせいで……」… <a href="https://t.co/O4rq7nLsfL">https://t.co/O4rq7nLsfL</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2053088767892922405?ref_src=twsrc%5Etfw">May 9, 2026</a></blockquote>
 
+### 種まき
+
+これは次回明かされるのか…？
+
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">リリィ　「お、ギードさんとフェロニカさん」<br>エルナ　「種を渡しているの！」<br>ティア　「終戦直後のシーンかしら？」<br>ジビア　「きっとな。世界大戦を終わらせ、『焔』の未来を創っていくワンシーン」<br>グレーテ「……では、解説の方、よろしくお願いします」<br>ヴィレ… <a href="https://t.co/ZKfOr8lTwJ">https://t.co/ZKfOr8lTwJ</a></p>&mdash; 竹町『スパイ教室』 (@take_machi_) <a href="https://twitter.com/take_machi_/status/2055627237253419225?ref_src=twsrc%5Etfw">May 16, 2026</a></blockquote>
+
 ## 短編集1巻 花嫁ロワイヤル
 
 まさかの短編集まで！
